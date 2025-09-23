@@ -1,0 +1,9 @@
+baseURL = 'https://github.com/dannyxcitto/danny-notas-biblia.git'
+languageCode = 'es'
+title = 'Notas de estudio bíblico'
+theme = 'XMag'
+Publishdir = 'docs'
+site_logo = "images/notas.jpg"
+[params]
+read_more_copy = "Leer mas"
+
