@@ -6,77 +6,63 @@ Title: Epístola del apóstol Pablo a los Colosenses
 
 ## Importancia de la epístola de Colosenses. 
 
+### Pablo desea que los creyentes Colosenses que sean llenos del conocimiento de su voluntad en toda sabiduría y comprensión espiritual, y por eso ora para que sean fortalecidos con todo el poder según su potencia. Colosenses 1:9-12
 
+### La importancia de la epístola radica en el mensaje centralizado de toda la persona y obra de Cristo, y como eso cuenta a nuestro favor, la posición privilegiada que tenemos en Él, y como Él es suficiente para justificarnos (Colosenses 1:20–22) y santificarnos (Colosenses 2:10), sin embargo los creyentes lo estaban rechazando, por un conocimiento humano y terrenal.
 
-## Situación general del cristianismo.
+### La carta a los Colosenses expondrá de manera Cristo-céntrica, expresando que Él es la imagen del Dios invisible (Colosenses 1:15) , Él es la cabeza de la iglesia (Colosenses 1:18), Él es el creador y sustentador de la creación (Colosenses 1:16–17) y en Él habita toda la plenitud de Dios. Colosenses 2:9
 
-#### Como era el contexto de la ciudad de colosenses?
+### Dentro de la carta abarcará el sincretismo religioso que estaba entrando a la iglesia, confrontando los rituales del judaísmo, el ascetismo, el culto a los ángeles, el gnosticismo, la sabiduría humana y sus filosofías, y las prácticas místicas, respondiendo como única solución y suficiente a Cristo para vivir una vida plena en Él. Colosenses 2:8–23
 
-#### Como es que los colosenses vivían?
+### Nos mostrará cual es la identidad posicional de cada Creyente, hemos sido trasladados al reino de su hijo amado (Colosenses 1:13), hemos muerto con Cristo (Colosenses 2:20), hemos resucitado con Cristo (Colosenses 3:1) y nuestra vida está escondida con Cristo en Dios. Colosenses 3:3
 
-#### Como recibieron el evangelio en el que habían creído?
+### Explicará la realidad de cada creyente como despojado del viejo Hombre y revestidos del nuevo hombre. Colosenses 2:9-10.
 
-#### Cuales eran las dificultades por las que estaban atravesando ?
+## Situación general la iglesia en Colosas.
 
-El cristianismo del siglo I estaba en plena expansión. Desde Jerusalén, el mensaje del evangelio se extendió por todo el Imperio Romano. Sin embargo, las iglesias eran jóvenes y vulnerables frente a:
+### La iglesia en Colosas no fue conocida por Pablo, sin embargo Epafras un colaborador de Pablo predicó el evangelio en Colosas y estaba dando mucho fruto. Colosenses 1:6-7, 4:12-13
 
-- La **presión del judaísmo tradicional**, que exigía la observancia de la ley.
-- Las **influencias filosóficas griegas** (especialmente el dualismo cuerpo/espíritu).
-- Las **prácticas paganas** del entorno romano.
-
-En ese contexto, Colosenses resalta la **centralidad y suficiencia de Cristo** frente a toda filosofía o religión humana. Pablo enseña que **Cristo es la imagen del Dios invisible**, **el creador y sustentador del universo**, y **la cabeza de la iglesia** (Col 1:15–20).
-
-## Situación interna de la iglesia. (Modificar)
-
-### 3. **La iglesia en Colosas**
-
-Pablo **no fundó directamente** la iglesia de Colosas. Esta comunidad probablemente nació a partir de la predicación de **Epafras** (Col 1:7; 4:12), un colaborador fiel de Pablo que escuchó el evangelio en Éfeso durante el ministerio del apóstol (Hechos 19:10).
-
-Epafras informó a Pablo sobre la fe y el amor de los colosenses, pero también le expresó su preocupación por **falsas doctrinas** que estaban surgiendo. Entre ellas se mencionan:
-
-- **Legalismo judaico** (la observancia de días, ritos y leyes del Antiguo Testamento).
-- **Filosofía humana y conocimiento esotérico**, una forma temprana de **gnosticismo**.
-- **Prácticas ascéticas y adoración de ángeles** (Col 2:18–23).
-
-Estas ideas ponían en duda la suficiencia y supremacía de Cristo. Pablo responde reafirmando que **Cristo es todo lo que el creyente necesita**.
+### El cristianismo estaba en plena expansión, sin embargo las iglesias eran vulnerables a las presiones del judaísmo y la observancia de la ley, las influencias griegas con su sabiduría y filosofías, y las prácticas paganas del entorno romano, Estas ideas humanas ponían en duda la suficiencia y supremacía de Cristo, y Pablo se encarga de responder a los creyentes por que Cristo es único y suficiente.
 
 ## La ciudad de Colosas.
 
-**Colosas** era una pequeña ciudad ubicada en la región de **Frigia**, en el valle del río Lico, en Asia Menor (actual Turquía). Aunque en tiempos anteriores había sido una ciudad importante, en la época de Pablo ya había perdido relevancia frente a las cercanas **Laodicea** y **Hierápolis** (Col 4:13).
+### Colosas era una pequeña ciudad ubicada en la región de Frigia, en el valle del río Lico, en Asia Menor (actual Turquía), había sido una ciudad de gran importancia por su ruta comercial, sin embargo la ruta comercial fue desviada y Colosas pasó a ser una ciudad despoblada y olvidada frente a las ciudades de Laodicea y Hierápolis.
 
-La población de Colosas era mixta: **griegos, judíos y orientales**, lo que generaba una fusión de ideas filosóficas, religiosas y culturales. Esa mezcla también influyó en la iglesia local, dando origen a **enseñanzas sincretistas** que amenazaban la pureza del evangelio.
+### La población de Colosas tenía diversidad de culturas como los griegos, judíos y orientales, ocasionando un sincretismo en las ideas filosóficas, religiosas y culturales, que influenciaron a la iglesia local cambiando la pureza del evangelio, por un evangelio sincretizado y carente de poder.
 
-## Autor.(Modificar)
+## Autor.
 
-El autor de la carta es el **apóstol Pablo**, identificado claramente en los primeros versículos (Col 1:1). Pablo fue un fariseo judío de la tribu de Benjamín, instruido a los pies de Gamaliel, y conocido inicialmente por su persecución de los cristianos (Hechos 8:1–3). Tras su encuentro con Cristo en el camino a Damasco (Hechos 9), su vida fue transformada radicalmente, convirtiéndose en el principal misionero del cristianismo primitivo y en uno de los más grandes teólogos del Nuevo Testamento.
+### El autor de la carta es el apóstol Pablo, firmando su autoría en los primeros versículos. Colosenses 1:1
+
+### Pablo cuyo nombre hebreo era Saulo, nació en Tarso de Cilicia (Hechos 22:3), era ciudadano Romano de nacimiento (Hechos 22:28), el cual le acreditaba derechos legales y privilegios ante las autoridades.
+
+### Como descendiente judío pertenecía a la tribu de Benjamín (Filipenses 3:5), fue instruido a los pies de Gamaliel (Hechos 22:3) uno de los más respetados rabinos del siglo I, fue formado como fariseo, un hombre celoso de por la ley y su interpretación rigurosa de la Torá.
+
+### Saulo llegó a ser conocido por su profunda devoción y celo al judaísmo y un fuerte rechazo al cristianismo. Mas adelante se convirtió en perseguidor de los cristianos. (Hechos 8:1-3) 
+
+### En el camino a Damasco buscando arrestar a los cristianos, tuvo un encuentro sobrenatural con Cristo resucitado, (Hechos 9:1-4) quedando ciego por 3 días y tiempo después el discípulo Ananías fue enviado por Dios a orar por él y devolverle la vista, inmediatamente fue bautizado y comenzó a predicar que Jesús era el Cristo, el hijo de Dios. (Hechos 9:17–20)
+
+### Desde ese momento Pablo comenzó los primeros años de su ministerio, y tiempo después realizó tres viajes misioneros (Hechos 13-21:17)
+
+### Tiempo después fue acusado por los judíos y entregado a las autoridades romanas apelando hasta Cesar (Hechos 9:17–20), Finalmente fue arrestado nuevamente durante la persecución del emperador Nerón (alrededor del año 64–67 d.C.) y ejecutado en Roma por decapitación, por ser ciudadano romano.
 
 ## Fecha de escritura.
 
-Al momento de escribir **Colosenses**, Pablo se encontraba **encarcelado**, probablemente en Roma (alrededor del año **60–62 d.C.**). Desde allí escribió también **Efesios, Filipenses y Filemón**, conocidas junto con Colosenses como las **“cartas de la prisión”**. A pesar de estar preso, su corazón y mente estaban centrados en el crecimiento espiritual de las iglesias que había ayudado a fundar, así como en aquellas que conocía indirectamente.
-
-## Escritos atribuidos al apóstol Pablo.
-
-
+### En el momento que pablo escribía la carta a los Colosenses se encontraba encarcelado posiblemente en Roma (alrededor del año 60–62 d.C.), escribiendo las cartas a los Efesios, Filipenses y Filemón, conocidas  como las “cartas de la prisión”.
 
 ## Propósito de la escritura.
 
-#### que
+### El propósito principal de la carta a los Colosenses es afirmar y exaltar la supremacía y suficiencia total de Cristo, mostrando a Cristo como único y suficiente medio para vivir de los creyentes. Colosenses 2:4-10
 
-####  como
+### Afirmarles y cimentarles en la verdad posicional a la cual todos los creyentes fueron colocados por medio de haber creído en el evangelio. Colosenses 1:13-14
 
-####  porque
+### Uno de los propósitos es el de contrastar las falsas enseñanzas sincretizadas, con la suficiencia de Cristo. Colosenses 2:20-23
 
-####  para que
-
-El propósito principal de la carta es **afirmar la supremacía de Cristo** y **proteger a los creyentes de falsas enseñanzas**. Pablo muestra que el creyente no necesita nada fuera de Cristo:
-
-> “Y vosotros estáis completos en él, que es la cabeza de todo principado y potestad.” (Col 2:10)
-
-La carta también exhorta a los cristianos a **vivir coherentemente con su nueva vida en Cristo**, dejando el “viejo hombre” y vistiéndose del “nuevo”, creado conforme a Dios (Col 3:9–10).
+### Mostrarles su nueva identidad de Nuevo hombre  y como se vería esa realidad práctica en su manera de vivir. Colosenses 3:9–10
 
 ## Tema central y división temática la epístola de Colosenses.
 
-### El tema central de la carta a los colosenses es: Toda la Plenitud de Dios. Colosenses 2:9
+### El tema central de la Epístola a los Colosenses es: *Porque toda la plenitud de la Deidad reside  corporalmente en Él*. Colosenses 2:9
 
 #### Colosenses 1:1-12 Introducción a la Epístola de Pablo a los Colosenses.
 
@@ -90,152 +76,93 @@ La carta también exhorta a los cristianos a **vivir coherentemente con su nueva
 
 #### Colosenses 4:7-18 Recomendaciones finales.
 
-**Saludo e introducción** (1:1–14)
-
-**La supremacía de Cristo** (1:15–23)
-
-**El ministerio de Pablo y su preocupación por la iglesia** (1:24–2:5)
-
-**Advertencia contra las falsas doctrinas** (2:6–23)
-
-**La nueva vida en Cristo** (3:1–17)
-
-**Instrucciones prácticas para la vida cristiana y familiar** (3:18–4:6)
-
-**Saludos finales y conclusión** (4:7–18)
-
-El eje de toda la carta puede resumirse así:
-
-> **“Cristo es suficiente.”**
->  En Él está toda la plenitud de Dios, y en Él el creyente alcanza plenitud espiritual. No hay conocimiento, rito, filosofía ni mediador que pueda añadir algo a lo que Cristo ya ha hecho.
-
 ---
 
 # Colosenses 1:1-12 Introducción a la Epístola de Pablo a los Colosenses.
 
-#### Por que es importante la carta de Pablo a la iglesia, vimos que la iglesia estaba pasando por diversos problemas tanto culturales como sociales y debido a esto el mensaje del evangelio estaba siendo transformado o confundido, debido al sincretismo de los creyentes.
+### El apóstol Pablo inicia su carta hacia los creyentes Colosenses, agradeciendo a Dios por causa de la esperanza del evangelio, la cual está dando fruto en los creyentes de todo el mundo y tambien en los Colosenses, los creyentes se encuentran abundando en un amor que proviene del Espíritu.
+
+### Pablo y los creyentes que se encuentran con él, no cesan de orar por que los creyentes Colosenses para que sean llenos de todo el conocimiento de la voluntad de Dios en toda sabiduría y comprensión espiritual y estén completamente fortalecidos con todo poder según la potencia de su gloria.
 
 ## Colosenses 1:1-2 Salutación 
 
-#### Pablo y Timoteo les escriben esta carta a los creyentes que habitaban en Colosas, esperando que sea de mucho ánimo y provecho para afirmarles en su fe, y mostrarles sobre el peligro de los falsas enseñanzas deseándoles que la gracia y paz de parte de Dios este con ellos.
+### Colosenses 1:1 Pablo inicia su carta siguiendo un formato epistolar grecorromano de la época (remitente, destinatario, saludo), en esta presentación Pablo se dirige a los Colosenses mostrándoles quien lo comisionó para ser apóstol.
 
-### Colosenses 1:1 *"Pablo, apóstol de Jesucristo por la voluntad de Dios, y el hermano Timoteo,"*
+#### Esta comisión de apostolado está de acuerdo con la voluntad de Dios, esta presentación debería haber puesto a los oyentes a prestar plena atención y estar completamente receptivos al mensaje que abarcaría en toda la carta. 2 Pedro 3:2; Efesios 2:19-20; 1 Corintios 12:28; Judas 17
 
-#### Pablo inicia su carta como apóstol de Jesucristo junto con el hermano Timoteo.
+### Colosenses 1:1a *"Pablo, apóstol de Jesucristo..."* Pablo se presenta como un apóstol (APÓSTOLOS) de Jesucristo, que significa enviado, mensajero o comisionado con un propósito. Hechos 9:15-16, 22:21
 
-### Colosenses 1:1a *"Pablo..."*
+#### A diferencia de los otros apóstoles que fueron comisionados por Jesucristo durante su ministerio terrenal, Pablo fue llamado como apóstol por medio de una revelación especial en camino a Damasco por Jesucristo resucitado. Hechos 9:3-6
 
-#### Quien era Pablo?
+#### Pablo se dirige como apóstol a los gentiles directamente comisionado por Jesucristo. Romanos 11:13 ; Gálatas 2:8 ; 1 Timoteo 2:7; 2 Timoteo 1:11; 1 Corintios 1:1; 2 Timoteo 1:1,5
 
-#### Antes un perseguidor de cristianos y ahora un siervo y apóstol de Jesucristo
+#### Sin embargo muchos creyentes dudaban del apostolado de Pablo y de sus enseñanzas.  1 Corintios 9:1-2; Gálatas 1:1 
 
-### Colosenses 1:1b *"...apóstol de Jesucristo..."*
+#### Pablo es parte de los 12 apóstoles del cordero, Jesús durante su ministerio terrenal directamente comisionó a 11(exceptuando a uno la muerte de Judas iscariote), y resucitado como último comisionó a Pablo.1 Corintios 15:7-9; Apocalipsis 21:14
 
-#### Pablo es un apóstol directamente encomendado por Jesucristo mismo, es parte de los 12 apóstoles del cordero, y su mensaje no debe ser considerado como alguien que habla de parte de Jesucristo como apóstol, enviado de Jesucristo.
+#### La palabra apóstol tambien es traducida como mensajero. 2 Corintios 8:23; Filipenses 2:25; Hechos 14:14 
 
-### Colosenses 1:1c *"...por la voluntad de Dios,..."*
+### Colosenses 1:1b *"...por la voluntad de Dios,..."* Es importante esta mención debido a que Dios mismo lo apartó y llamó por su gracia desde el vientre de su madre para un propósito, el anunciarlo entre los gentiles. Gálatas 1:15-16; 1 Corintios 1:1; 2 Corintios 1:1;  2 Timoteo 1:1
 
-#### Es importante mencionar que la voluntad de Dios fue que Pablo sea apostol de Jesucristo, no fue una voluntad humana sinó de Dios que lo preparó desde el vientre de su madre para un propósito. el ser apóstol
+### Colosenses 1:1c *"...y el hermano Timoteo,"* Después de presentar su apostolado, menciona a Timoteo como un hermano en Cristo que se encontraba con Pablo mientras escribía la carta, es mencionado tambien en sus algunas de sus epístolas. 2 Corintios 1:1; Filemón 1; Filipenses 1:1
 
-#### por o Mediante la voluntad de Dios
+#### Timoteo era un fiel compañero y colaborador del apóstol Pablo, es mencionado como su hijo en la fe, y dos de sus epístolas están dirigidas a Timoteo. 1 Timoteo 1:2; 2 Timoteo 1:2; Hechos 16:1
 
-#### 1Cor. 1:1 ;2Cor. 1:1 - Pablo muestra su apostolado por la voluntad de Dios
+#### Fue enviado por el apóstol Pablo a Tesalónica con el fin de animar a los Creyentes, es descrito Timoteo como un hermano y colaborador de Dios en el evangelio. 1 Tesalonicenses 3:2; Filipenses 2:19-23
 
-### Colosenses 1:1d *"...y el hermano Timoteo,"*
+### Colosenses 1:2  Los destinatarios de esta carta eran los creyentes que habitaban en la ciudad de Colosas, sin embargo esta carta inspirada por el espíritu santo a nosotros como creyentes nos es de mucha edificación y crecimiento. 2 Timoteo 3:16; 2 Pedro 1:20-21
 
-#### Es mencionado Timoteo como un hermano fiel en la fe
+### Colosenses 1:2a  *"a los santos y fieles hermanos en Cristo que están en Colosas:..."*  La mención a los creyentes como santos y fieles son adjetivos, quiere decir que Pablo se encuentra describiendo una realidad de los creyentes en Cristo.
 
-#### Timoteo estaba cuando envió la carta de coriontios con Pablo,2Cor. 1:1;
+#### Es importante mencionar que cada creyente ha sido hecho santo, JAGIOS significa apartado, los creyentes hemos sido apartados para Dios con un propósito. La santidad es una realidad posicional en la que el creyente es visto por Dios como un santo, sin embargo estos santos son llamados a vivir en una santidad práctica. 1 Corintios 1:2
 
-####  fue enviado por pablo y los creyentes a tesalónica para animar a los creyentes 1Tes. 3:2
+#### La palabra fiel o tambien fe PISTOS significa alguien digno de confianza, en este pasaje nos muestra como un adjetivo el cual se encuentra describiendo lo que ya son los creyentes, Un creyente no puede producir fidelidad o fe en sus propias fuerzas, es un fruto del espíritu, y esto resultará prácticamente en su andar por fe. Efesios. 1:1; Gálatas 5:22
 
-#### Timoteo acompaño a Pablo cuando escribían la carta a Filemón. Filemón 1
+#### Estos adjetivos mencionados describen a los creyentes, sin embargo los creyentes pueden no estar andando en santidad y fidelidad en su diario vivir, no obstante esto no les quita su realidad posicional en Cristo que fue otorgada por gracia al momento de su salvación. 1 Corintios 1:30
 
-#### Filipenses 1:1
+### Colosenses 1:2b  *"...Gracia a ustedes y paz de parte de Dios nuestro Padre."* El deseo del apóstol Pablo era que la gracia y paz que provienen de Dios estén en los creyentes, es importante recordar la gracia que nos fue dada de parte de Dios por medio de la obra que Cristo realizó a nuestro favor. Romanos 1:7, 8:15 ; Gálatas 4:6
 
-#### En la carta a los hebreos muestra que Timoteo había sido puesto en libertad .Heb. 13:23
+#### La palabra gracia JARIS significa un favor ú regalo inmerecido, en este caso de Dios a todos los creyentes, la misma gracia por la que habían sido salvados, la misma gracia por la cual tambien serán salvos y santificados. Efesios 2:8; Tito 2:11-13
 
-### Colosenses 1:2 *"a los santos y fieles hermanos en Cristo que están en Colosas: Gracia a ustedes y paz de parte de Dios nuestro Padre."*
+#### La palabra paz EIRENE significa bienestar o tranquilidad mental, esta paz no proviene de nosotros mismos o de las circunstancias en las que nos encontremos, sino que proviene de parte de Dios, a pesar de las circunstancias, y esta es una bendición grande a los creyentes, estar contando con la paz de parte de nuestro Dios y Padre. Filipenses 4:7,9; Juan 14:27
 
-#### Los destinatarios de esta carta son los creyentes que habitan en Colosas.
-
-####  carta menciona a quienes fue escrita, a los hermanos que están en Colosas
-
-### Colosenses 1:2a  *"a los santos y fieles hermanos en Cristo que están en Colosas:..."*
-
-#### Es importante mencionar que los creyentes son santos, Quienes son los santos? que significa santos? son santos por su manera de vivir? por que son santos?
-
-#### Quienes son los hermanos fieles?, Hay hermanos infieles en Cristo?, por que menciona a los santos y fieles?, esta hablando posicionalmente o sencillamente está describiendo su posición en Cristo? o ambos?
-
-### Colosenses 1:2b  *"...Gracia a ustedes y paz de parte de Dios nuestro Padre."*
-
-#### El deseo del apóstol Pablo era la gracia a los creyentes, la misma gracia por la que habían sido salvados, la misma gracia por la cual tambien serán salvos y santificados.
-
-#### La paz proviene de parte de Dios, la cual Pablo deseaba que sea en los creyentes
-
-#### Es importante mencionar que es nuestro Padre, Reconoce que el es hijo de Dios y tambien los receptores de esta carta.
-
-
+#### Es importante la mención que Dios es nuestro Padre, reconociendo que somos hijos de Dios y que se nos ha otorgado a todos sus hijos estas bendiciones. 1 Juan 3:1-3; Juan 1:12
 
 ---
 
 ## Colosenses 1:3-6 Agradecimiento por el fruto del evangelio.
 
-#### Que impactante que puedan estar Los hermanos donde Pablo enviaba la carta orando por los hermanos colosenses, agradeciendo a Dios por la obra que se estaba realizando en Colosas, y era de mucho impacto por que se oía acerca de su fe y amor, el resultado de la palabra en verdad estaba dando fruto entre ellos por medio de un siervo fiel Epafras.
+#### Es impactante observar como los hermanos reunidos continuamente oraban por los creyentes en la ciudad de Colosas, y es de impacto escuchar que el amor entre hermanos en el espíritu, es un fruto del evangelio, el evangelio estaba produciendo frutos de amor sincero nacido por causa de oír la palabra de verdad.
 
-### Colosenses 1:3 *"Damos gracias a Dios, el Padre de nuestro Señor Jesucristo, orando siempre por ustedes,"*
+### Colosenses 1:3 Pablo se encontraba agradeciendo a Dios y orando continuamente por los hermanos en Colosas. Romanos 1:8; Filipenses 1:3
 
-#### Empieza agradeciendo a Dios nuestro Padre y menciona que se encuentra orando por los hermanos en Colosas
+### Colosenses 1:3a *"Damos gracias a Dios,..."* Es importante la mención en plural, significando que Pablo y los creyentes que estaban con él posiblemente en Roma durante su primer encarcelamiento, el motivo de agradecimiento era el fruto del evangelio entre los creyentes Colosenses. Efesios 1:15-16
 
-### Colosenses 1:3a *"Damos gracias a Dios,..."*
+#### Es de mucho gozo saber que la obra en el señor no es en vano, y Pablo se estaba enterando por medio de Epafras que el evangelio estaba dando frutos, y esto es causa de mucho agradecimiento a Dios. 1 Corintios 15:58
 
-#### Pablo y los que estaban con él empiezan agradeciendo a Dios
+#### Hay una gran diferencia entre ser agradecido a Dios de corazón sincero por sus provisiones inmerecidas y favor hacia nosotros, a diferencia de que nos enseñaron obligadamente a dar gracias de manera forzada por todo lo que Dios nos da, y en este pasaje el agradecimiento es genuino por lo que él hizo a través de la predicación del evangelio.
 
-#### Es importante el por que estaba siendo agradecido Pablo
+### Colosenses 1:3b *"...el Padre de nuestro Señor Jesucristo,..."* La mención anterior de Dios nuestro Padre, y ahora afirma como el Padre de nuestro Señor Jesucristo, afirma verdades importantes para el creyente. Romanos 15:6; 2 Corintios 1:3; Apocalipsis 1:5-6
 
-### Colosenses 1:3b *"...el Padre de nuestro Señor Jesucristo,..."*
+### Colosenses 1:3c *"...orando siempre por ustedes,"* Pablo quería que sepan cuan intensamente oraban por ellos, quería que conozcan que los creyentes se encontraban fervientemente orando por cada uno de ellos para que sigan creciendo en el conocimiento de Dios el Padre y de su hijo Jesucristo, y les anima durante la carta a perseverar en la oración los unos por los otros. Colosenses 4:2
 
-#### El Padre de nuestro señor Jesucristo, explica que es el Padre de Jesucristo, antes mencionaba tambien como nuestro Padre
+### Colosenses 1:4 A través de Epafras Pablo y los creyentes que estaban con él oían de la fe y del amor que el evangelio estaba produciendo en los creyentes que probablemente había llegado hasta Colosas por medio de la predicación del evangelio en de Éfeso. Hechos 19:10
 
-### Colosenses 1:3c *"...orando siempre por ustedes,"*
+### Colosenses 1:4a *"pues hemos oído de su fe en Cristo Jesús,..."* La fe de los creyentes para su salvación  estaba la persona y obra correcta: Jesucristo, fueron salvados por gracia mediante la predicación del evangelio, y ahora el evangelio estaba produciendo frutos en su diario caminar.
 
-#### Se encontraban orando por los hermanos en colosas, constantemente,
+### Colosenses 1:4b *"...y del amor que tienen por todos los santos,"*  Este amor AGAPE, es producido en el creyente por medio del espíritu, un amor hacia todos los santos, es el resultado del discipulado. Juan 13:35, 15:12
 
-### Colosenses 1:4 *"pues hemos oído de su fe en Cristo Jesús y del amor que tienen por todos los santos,"*
+#### El andar en el espíritu de los creyentes de Colosas era visible, debido a que podrían ver el amor genuino manifestado a todos los santos como un fruto que proviene únicamente de parte de Dios. Gálatas 5:22
 
-#### Los motivos de oración eran debido a su fe en Cristo Jesús, esto era debido a que eran creyentes, se encontraban orando con toda perseverancia por sus hermanos en cristo.
+### Colosenses 1:5 La causa que producía este amor hacia todos los santos era una esperanza que habían escuchado en la palabra del evangelio. Romanos:15:13
 
-#### Es interesante como se llegó a oir la fe de los colosenses.
+### Colosenses 1:5a *"a causa de la esperanza reservada para ustedes en los cielos..."* Esta esperanza que habían oído, había cambiado la perspectiva del amor y fe que tenían, ahora a través de poner la esperanza en las cosas celestiales estaba produciendo un amor sincero y desinteresado hacia todos los santos. Efesios 1:18
 
-### Colosenses 1:4a *"pues hemos oído de su fe en Cristo Jesús,..."*
+### Colosenses 1:5b *"...De esta esperanza ustedes oyeron antes en la palabra de verdad, el evangelio"* Es muy importante aclarar cual es la esperanza que habían oído los creyentes Colosenses, y había sido la pureza de la predicación del evangelio, la salvación, la vida eterna, el perdón de pecados, y una nueva vida en Cristo Jesús. Efesios 1:13-14; 2 Timoteo 4:8; 1 Pedro 1:4
 
-#### Es interesante el que Pablo haya podía oir de su fe en Cristo jesús desde donde estaba, esto era completamente notorio y visible. a los ojos de muchos, su fe en Cristo visible de los colosenses
+#### Podemos ver que la palabra de Verdad es el Evangelio, fuera del evangelio no existe otra palabra verdadera. Efesios 4:21
 
-### Colosenses 1:4b *"...y del amor que tienen por todos los santos,"*
-
-#### Algo que muchos podían ver y escuchar era con respecto a la fe de los santos de Colosas, es interesante que Pablo no les conocía a los colosenses ni les había evangelizado.
-
-#### Este amor era algo visible para con los santos, osea los creyentes. entre creyentes era muy visible el amor que tenían.
-
-### Colosenses 1:5 *"a causa de la esperanza reservada para ustedes en los cielos. De esta esperanza ustedes oyeron antes en la palabra de verdad, el evangelio"*
-
-#### Este amor tenía una causa y era el evangelio que habían oido
-
-### Colosenses 1:5a *"a causa de la esperanza reservada para ustedes en los cielos..."*
-
-#### La esperanza reservada que tenían era la esperanza de la vida eterna por medio del evangelio.
-
-### Colosenses 1:5b *"...De esta esperanza ustedes oyeron antes en la palabra de verdad, el evangelio"*
-
-#### Esta esperanza se comunicaba era la esperanza que el evangelio ofrece, la vida eterna, el perdon de pecados en la obra de Cristo en la cruz
-
-#### Es interesante que recibieron esta palabra por medio de la predicación verbal del evangelio. el oir la palabra de verdad y creer en el mensaje de salvación.
-
-#### Nos muestra que la palabra de verdad es el evangelio, no hay otra palabra de verdad.
-
-### Colosenses 1:6 *"que ha llegado hasta ustedes. Así como en todo el mundo está dando fruto constantemente y creciendo, así lo ha estado haciendo también en ustedes, desde el día que oyeron y comprendieron la gracia de Dios en verdad."*
-
-####  Es interesante que el amor que estaba produciendo por medio del evangelio, estaba creciendo y dando fruto entre los colosenses.
+### Colosenses 1:6 La gracia de Dios había llegado hasta los colosenses y a todo el mundo, sin embargo estaba produciendo frutos por medio de la comprensión de esta gracia, entender plenamente la gracia hará que que los creyentes puedan producir frutos del evangelio en sus vidas.
 
 ### Colosenses 1:6a *"que ha llegado hasta ustedes..."*
 
