@@ -86,11 +86,15 @@ Title: Epístola del apóstol Pablo a los Colosenses
 
 ## Colosenses 1:1-2 Salutación 
 
-### Colosenses 1:1 Pablo inicia su carta siguiendo un formato epistolar grecorromano de la época (remitente, destinatario, saludo), en esta presentación Pablo se dirige a los Colosenses mostrándoles quien lo comisionó para ser apóstol.
+### Colosenses 1:1 *"Pablo, apóstol de Jesucristo por la voluntad de Dios, y el hermano Timoteo,"* 
+
+#### Pablo inicia su carta siguiendo un formato epistolar grecorromano de la época (remitente, destinatario, saludo), en esta presentación Pablo se dirige a los Colosenses mostrándoles quien lo comisionó para ser apóstol.
 
 #### Esta comisión de apostolado está de acuerdo con la voluntad de Dios, esta presentación debería haber puesto a los oyentes a prestar plena atención y estar completamente receptivos al mensaje que abarcaría en toda la carta. 2 Pedro 3:2; Efesios 2:19-20; 1 Corintios 12:28; Judas 17
 
-### Colosenses 1:1a *"Pablo, apóstol de Jesucristo..."* Pablo se presenta como un apóstol (APÓSTOLOS) de Jesucristo, que significa enviado, mensajero o comisionado con un propósito. Hechos 9:15-16, 22:21
+### Colosenses 1:1a *"Pablo, apóstol de Jesucristo..."* 
+
+#### Pablo se presenta como un apóstol (APÓSTOLOS) de Jesucristo, que significa enviado, mensajero o comisionado con un propósito. Hechos 9:15-16, 22:21
 
 #### A diferencia de los otros apóstoles que fueron comisionados por Jesucristo durante su ministerio terrenal, Pablo fue llamado como apóstol por medio de una revelación especial en camino a Damasco por Jesucristo resucitado. Hechos 9:3-6
 
@@ -102,17 +106,25 @@ Title: Epístola del apóstol Pablo a los Colosenses
 
 #### La palabra apóstol tambien es traducida como mensajero. 2 Corintios 8:23; Filipenses 2:25; Hechos 14:14 
 
-### Colosenses 1:1b *"...por la voluntad de Dios,..."* Es importante esta mención debido a que Dios mismo lo apartó y llamó por su gracia desde el vientre de su madre para un propósito, el anunciarlo entre los gentiles. Gálatas 1:15-16; 1 Corintios 1:1; 2 Corintios 1:1;  2 Timoteo 1:1
+### Colosenses 1:1b *"...por la voluntad de Dios,..."* 
 
-### Colosenses 1:1c *"...y el hermano Timoteo,"* Después de presentar su apostolado, menciona a Timoteo como un hermano en Cristo que se encontraba con Pablo mientras escribía la carta, es mencionado tambien en sus algunas de sus epístolas. 2 Corintios 1:1; Filemón 1; Filipenses 1:1
+#### Es importante esta mención debido a que Dios mismo lo apartó y llamó por su gracia desde el vientre de su madre para un propósito, el anunciarlo entre los gentiles. Gálatas 1:15-16; 1 Corintios 1:1; 2 Corintios 1:1;  2 Timoteo 1:1
+
+### Colosenses 1:1c *"...y el hermano Timoteo,"* 
+
+#### Después de presentar su apostolado, menciona a Timoteo como un hermano en Cristo que se encontraba con Pablo mientras escribía la carta, es mencionado tambien en sus algunas de sus epístolas. 2 Corintios 1:1; Filemón 1; Filipenses 1:1
 
 #### Timoteo era un fiel compañero y colaborador del apóstol Pablo, es mencionado como su hijo en la fe, y dos de sus epístolas están dirigidas a Timoteo. 1 Timoteo 1:2; 2 Timoteo 1:2; Hechos 16:1
 
 #### Fue enviado por el apóstol Pablo a Tesalónica con el fin de animar a los Creyentes, es descrito Timoteo como un hermano y colaborador de Dios en el evangelio. 1 Tesalonicenses 3:2; Filipenses 2:19-23
 
-### Colosenses 1:2  Los destinatarios de esta carta eran los creyentes que habitaban en la ciudad de Colosas, sin embargo esta carta inspirada por el espíritu santo a nosotros como creyentes nos es de mucha edificación y crecimiento. 2 Timoteo 3:16; 2 Pedro 1:20-21
+### Colosenses 1:2 *"a los santos y fieles hermanos en Cristo que están en Colosas: Gracia a ustedes y paz de parte de Dios nuestro Padre."*
 
-### Colosenses 1:2a  *"a los santos y fieles hermanos en Cristo que están en Colosas:..."*  La mención a los creyentes como santos y fieles son adjetivos, quiere decir que Pablo se encuentra describiendo una realidad de los creyentes en Cristo.
+#### Los destinatarios de esta carta eran los creyentes que habitaban en la ciudad de Colosas, sin embargo esta carta inspirada por el espíritu santo a nosotros como creyentes nos es de mucha edificación y crecimiento. 2 Timoteo 3:16; 2 Pedro 1:20-21
+
+### Colosenses 1:2a  *"a los santos y fieles hermanos en Cristo que están en Colosas:..."*  
+
+#### La mención a los creyentes como santos y fieles son adjetivos, quiere decir que Pablo se encuentra describiendo una realidad de los creyentes en Cristo.
 
 #### Es importante mencionar que cada creyente ha sido hecho santo, JAGIOS significa apartado, los creyentes hemos sido apartados para Dios con un propósito. La santidad es una realidad posicional en la que el creyente es visto por Dios como un santo, sin embargo estos santos son llamados a vivir en una santidad práctica. 1 Corintios 1:2
 
@@ -120,7 +132,9 @@ Title: Epístola del apóstol Pablo a los Colosenses
 
 #### Estos adjetivos mencionados describen a los creyentes, sin embargo los creyentes pueden no estar andando en santidad y fidelidad en su diario vivir, no obstante esto no les quita su realidad posicional en Cristo que fue otorgada por gracia al momento de su salvación. 1 Corintios 1:30
 
-### Colosenses 1:2b  *"...Gracia a ustedes y paz de parte de Dios nuestro Padre."* El deseo del apóstol Pablo era que la gracia y paz que provienen de Dios estén en los creyentes, es importante recordar la gracia que nos fue dada de parte de Dios por medio de la obra que Cristo realizó a nuestro favor. Romanos 1:7, 8:15 ; Gálatas 4:6
+### Colosenses 1:2b  *"...Gracia a ustedes y paz de parte de Dios nuestro Padre."* 
+
+#### El deseo del apóstol Pablo era que la gracia y paz que provienen de Dios estén en los creyentes, es importante recordar la gracia que nos fue dada de parte de Dios por medio de la obra que Cristo realizó a nuestro favor. Romanos 1:7, 8:15 ; Gálatas 4:6
 
 #### La palabra gracia JARIS significa un favor ú regalo inmerecido, en este caso de Dios a todos los creyentes, la misma gracia por la que habían sido salvados, la misma gracia por la cual tambien serán salvos y santificados. Efesios 2:8; Tito 2:11-13
 
@@ -134,153 +148,271 @@ Title: Epístola del apóstol Pablo a los Colosenses
 
 #### Es impactante observar como los hermanos reunidos continuamente oraban por los creyentes en la ciudad de Colosas, y es de impacto escuchar que el amor entre hermanos en el espíritu, es un fruto del evangelio, el evangelio estaba produciendo frutos de amor sincero nacido por causa de oír la palabra de verdad.
 
-### Colosenses 1:3 Pablo se encontraba agradeciendo a Dios y orando continuamente por los hermanos en Colosas. Romanos 1:8; Filipenses 1:3
+### Colosenses 1:3 *"Damos gracias a Dios, el Padre de nuestro Señor Jesucristo, orando siempre por ustedes,"*
 
-### Colosenses 1:3a *"Damos gracias a Dios,..."* Es importante la mención en plural, significando que Pablo y los creyentes que estaban con él posiblemente en Roma durante su primer encarcelamiento, el motivo de agradecimiento era el fruto del evangelio entre los creyentes Colosenses. Efesios 1:15-16
+#### Pablo se encontraba agradeciendo a Dios y orando continuamente por los hermanos en Colosas. Romanos 1:8; Filipenses 1:3
+
+### Colosenses 1:3a *"Damos gracias a Dios,..."* 
+
+#### Es importante la mención en plural, significando que Pablo y los creyentes que estaban con él posiblemente en Roma durante su primer encarcelamiento, el motivo de agradecimiento era el fruto del evangelio entre los creyentes Colosenses. Efesios 1:15-16
 
 #### Es de mucho gozo saber que la obra en el señor no es en vano, y Pablo se estaba enterando por medio de Epafras que el evangelio estaba dando frutos, y esto es causa de mucho agradecimiento a Dios. 1 Corintios 15:58
 
 #### Hay una gran diferencia entre ser agradecido a Dios de corazón sincero por sus provisiones inmerecidas y favor hacia nosotros, a diferencia de que nos enseñaron obligadamente a dar gracias de manera forzada por todo lo que Dios nos da, y en este pasaje el agradecimiento es genuino por lo que él hizo a través de la predicación del evangelio.
 
-### Colosenses 1:3b *"...el Padre de nuestro Señor Jesucristo,..."* La mención anterior de Dios nuestro Padre, y ahora afirma como el Padre de nuestro Señor Jesucristo, afirma verdades importantes para el creyente. Romanos 15:6; 2 Corintios 1:3; Apocalipsis 1:5-6
+### Colosenses 1:3b *"...el Padre de nuestro Señor Jesucristo,..."* 
 
-### Colosenses 1:3c *"...orando siempre por ustedes,"* Pablo quería que sepan cuan intensamente oraban por ellos, quería que conozcan que los creyentes se encontraban fervientemente orando por cada uno de ellos para que sigan creciendo en el conocimiento de Dios el Padre y de su hijo Jesucristo, y les anima durante la carta a perseverar en la oración los unos por los otros. Colosenses 4:2
+#### La mención anterior de Dios nuestro Padre, y ahora afirma como el Padre de nuestro Señor Jesucristo, afirma verdades importantes para el creyente. Romanos 15:6; 2 Corintios 1:3; Apocalipsis 1:5-6
 
-### Colosenses 1:4 A través de Epafras Pablo y los creyentes que estaban con él oían de la fe y del amor que el evangelio estaba produciendo en los creyentes que probablemente había llegado hasta Colosas por medio de la predicación del evangelio en de Éfeso. Hechos 19:10
+### Colosenses 1:3c *"...orando siempre por ustedes,"* 
 
-### Colosenses 1:4a *"pues hemos oído de su fe en Cristo Jesús,..."* La fe de los creyentes para su salvación  estaba la persona y obra correcta: Jesucristo, fueron salvados por gracia mediante la predicación del evangelio, y ahora el evangelio estaba produciendo frutos en su diario caminar.
+#### Pablo quería que sepan cuan intensamente oraban por ellos, quería que conozcan que los creyentes se encontraban fervientemente orando por cada uno de ellos para que sigan creciendo en el conocimiento de Dios el Padre y de su hijo Jesucristo, y les anima durante la carta a perseverar en la oración los unos por los otros. Colosenses 4:2
 
-### Colosenses 1:4b *"...y del amor que tienen por todos los santos,"*  Este amor AGAPE, es producido en el creyente por medio del espíritu, un amor hacia todos los santos, es el resultado del discipulado. Juan 13:35, 15:12
+### Colosenses 1:4 *"pues hemos oído de su fe en Cristo Jesús y del amor que tienen por todos los santos,"*
+
+#### A través de Epafras Pablo y los creyentes que estaban con él oían de la fe y del amor que el evangelio estaba produciendo en los creyentes que probablemente había llegado hasta Colosas por medio de la predicación del evangelio en de Éfeso. Hechos 19:10
+
+### Colosenses 1:4a *"pues hemos oído de su fe en Cristo Jesús,..."* 
+
+#### La fe de los creyentes para su salvación  estaba la persona y obra correcta: Jesucristo, fueron salvados por gracia mediante la predicación del evangelio, y ahora el evangelio estaba produciendo frutos en su diario caminar.
+
+### Colosenses 1:4b *"...y del amor que tienen por todos los santos,"*  
+
+#### Este amor AGAPE, es producido en el creyente por medio del espíritu, un amor hacia todos los santos, es el resultado del discipulado. Juan 13:35, 15:11-17
 
 #### El andar en el espíritu de los creyentes de Colosas era visible, debido a que podrían ver el amor genuino manifestado a todos los santos como un fruto que proviene únicamente de parte de Dios. Gálatas 5:22
 
-### Colosenses 1:5 La causa que producía este amor hacia todos los santos era una esperanza que habían escuchado en la palabra del evangelio. Romanos:15:13
+### Colosenses 1:5 *"a causa de la esperanza reservada para ustedes en los cielos. De esta esperanza ustedes oyeron antes en la palabra de verdad, el evangelio"*
 
-### Colosenses 1:5a *"a causa de la esperanza reservada para ustedes en los cielos..."* Esta esperanza que habían oído, había cambiado la perspectiva del amor y fe que tenían, ahora a través de poner la esperanza en las cosas celestiales estaba produciendo un amor sincero y desinteresado hacia todos los santos. Efesios 1:18
+#### La causa que producía este amor hacia todos los santos era una esperanza que habían escuchado en la palabra del evangelio. Romanos 15:13
 
-### Colosenses 1:5b *"...De esta esperanza ustedes oyeron antes en la palabra de verdad, el evangelio"* Es muy importante aclarar cual es la esperanza que habían oído los creyentes Colosenses, y había sido la pureza de la predicación del evangelio, la salvación, la vida eterna, el perdón de pecados, y una nueva vida en Cristo Jesús. Efesios 1:13-14; 2 Timoteo 4:8; 1 Pedro 1:4
+### Colosenses 1:5a *"a causa de la esperanza reservada para ustedes en los cielos..."* 
 
-#### Podemos ver que la palabra de Verdad es el Evangelio, fuera del evangelio no existe otra palabra verdadera. Efesios 4:21
+#### La esperanza reservada que tienen los santos son las riquezas de la herencia en los cielos, esta esperanza estaba cambiando su perspectiva de vivir y como consecuencia estaban manifestando un amor genuino por todos los santos. Efesios 1:18
 
-### Colosenses 1:6 La gracia de Dios había llegado hasta los colosenses y a todo el mundo, sin embargo estaba produciendo frutos por medio de la comprensión de esta gracia, entender plenamente la gracia hará que que los creyentes puedan producir frutos del evangelio en sus vidas.
+### Colosenses 1:5b *"...De esta esperanza ustedes oyeron antes en la palabra de verdad, el evangelio"* 
+
+#### La esperanza que habían oído era la palabra de verdad, el evangelio de su salvación, y creyendo en esta buena noticia fueron salvos. Efesios 1:13-14; 2 Timoteo 4:8; 1 Pedro 1:4
+
+#### La única palabra de verdad es el Evangelio, fuera de este mensaje no existe verdad para salvación. Efesios 4:21
+
+#### El evangelio consiste en el anuncio de una buena noticia para salvación, y se trata específicamente de una persona y una obra realizada, La persona Jesucristo, la obra que hizo, morir por nuestros pecados. 1 Corintios 15:3-4; Hechos 16:30-32; Juan 3:16-18; 1 Juan 5:13
+
+#### El deseo de Dios es que todos sean salvos y vengan al conocimiento de la verdad .1 Timoteo 2:4; Ezequiel 18:23, 33:11 
+
+#### El anunció de la predicación del evangelio es para todo el mundo y a todas las naciones. Mateo 28:18-20; Marcos 16:15; Hechos 1:8, 6:7; Lucas 24:44-49 
+
+### Colosenses 1:6 *"que ha llegado hasta ustedes. Así como en todo el mundo está dando fruto constantemente y creciendo, así lo ha estado haciendo también en ustedes, desde el día que oyeron y comprendieron la gracia de Dios en verdad."*
+
+#### Este evangelio había llegado a los Colosenses y en todo el mundo estaba dando fruto mediante la comprensión de la gracia de Dios, la comprensión plena de la gracia hará que los creyentes puedan llevar el fruto del evangelio en sus vidas.
 
 ### Colosenses 1:6a *"que ha llegado hasta ustedes..."*
 
-#### Wow, esto es de impresionarse como el evangelio llegó hasta ustedes, Pablo se sorprendió de que haya llegado hasta allá
+#### El evangelio se expandía por todas las regiones siendo de bendición a todas las familias de la tierra. Hechos 1:8; Génesis 12:3
 
-### Colosenses 1:6b *"...Así como en todo el mundo está dando fruto constantemente y creciendo,..."*
+### Colosenses 1:6b *"...Así como en todo el mundo está dando fruto constantemente y creciendo,..."* 
 
-#### Y no solo a ellos sinó que esta buena noticia llegó a todo el mundo, y no solo eso en todo el mundo esta dando fruto, de amor entre hermanos. wow impresionantes las consecuencias del evangelio.
+#### Este fruto estaba dando constantemente entre los creyentes de todo el mundo.
 
-### Colosenses 1:6c *"...así lo ha estado haciendo también en ustedes,..."*
+#### La palabra creciendo AUXANO se encuentra en voz pasiva, mostrando que no eran los individuos que estaban haciendo crecer el evangelio. Mateo 16:15-18
 
-#### Este fruto que es por el mensaje del evangelio estaba siendo completamente evidente entre los colosenses, desde el día que oyeron
+### Colosenses 1:6c *"...así lo ha estado haciendo también en ustedes,..."* 
 
-### Colosenses 1:6d *"...desde el día que oyeron y comprendieron la gracia de Dios en verdad."*
+#### Los creyentes de Colosas eran testigos directos del fruto del evangelio y este amor que proviene de la palabra de verdad era evidente para todos.
 
-#### Hubo un momento en el tiempo donde oyeron la palabra de verdad y comprendieron la gracia de Dios, el evangelio de su salvación, Comprendieron la gracia de Dios por medio del evangelio, y eso estaba dando frutos en todos los creyentes de colosas
+### Colosenses 1:6d *"...desde el día que oyeron y comprendieron la gracia de Dios en verdad."* 
+
+#### El día en que oyeron el evangelio y creyeron fueron salvos, Justificados gratuitamente por la fe en Jesucristo. Romanos 5:1-2 
+
+#### Entendiendo que cada creyente ha obtenido la entrada por la fe a esta gracia, el deseo sincero es que puedan seguir creciendo en el conocimiento de ella. 2 Pedro 3:18; Tito 2:11-13; 2 Timoteo 2:4; 1 Corintios 1:18
 
 ---
 
 ## Colosenses 1:7-8 Epafras informó del amor entre los creyentes.
 
+#### Es interesante ver que un mensajero del evangelio les comunicó a los Colosenses esta buena noticia acerca de esta gracia de Dios y ahora estaba junto con Pablo contándoles acerca de los hechos impresionantes que el evangelio estaba causando en los creyentes.
+
 ### Colosenses 1:7 *"Así ustedes lo aprendieron de Epafras, nuestro amado consiervo, quien es fiel servidor de Cristo de parte nuestra,"*
 
-#### Es interesante que un mensajero del evangelio les comunicó a toda la ciudad, Epafras, nos muestra que es un fiel servidor de Cristo
+#### Pablo describe a Epafras considerándolo como un siervo fiel de Cristo y compañero de trabajo de Pablo en la predicación del evangelio que mostraba una intensa oración a favor de los Colosenses, demostrando valentía y firmeza en su fe hasta el punto de sufrir prisiones por causa del evangelio.
 
-### Colosenses 1:7a *"Así ustedes lo aprendieron de Epafras,..."*
+### Colosenses 1:7a *"Así ustedes lo aprendieron de Epafras,..."* 
 
-#### Epafras se dedico a enseñarles de la gracia de Dios, por medio de la predicación audible, Epafras estaba compartiendo la verdad, y esto estaba dando grande fruto entre todos los creyentes.
+#### Epafras posiblemente escuchó el evangelio en uno de los viajes misioneros de Pablo, y fue a compartir esta buena noticia a los de la ciudad de Colosas.
 
-### Colosenses 1:7b *"...nuestro amado consiervo,..."*
+#### También es mencionado su nombre en la carta a Filemón, que fue escrita durante el primer encarcelamiento del apóstol Pablo, es descrito como un compañero de prisión en Cristo Jesús, posiblemente llegó a estar encarcelado por la predicación del evangelio junto con Pablo. Filemón 23
 
-#### Epafras era un consiervo, o un co-servidor, alguien que así como pablo era siervo de Cristo de la misma manera era Epafras, un colega servidor
+### Colosenses 1:7b *"...nuestro amado consiervo,..."* 
 
-### Colosenses 1:7c *"...quien es fiel servidor de Cristo de parte nuestra,"*
+#### Pablo y los creyentes que con él estaban mostraban un amor sincero en Cristo Jesús hacia Epafras y otros hermanos en la fe llamándolos amados. Colosenses 4:7-9,14
 
-#### Pablo describe a Epafras como un fiel servidor de Cristo, y es interesante que es de parte nuestra, es alguien que compartía el mismo mensaje que pablo a los creyentes, alguien que servía fielmente como Pablo en su ministerio a los gentiles.
+#### La palabra consiervo SUNDOULOS significa compañero de esclavitud, un co-servidor o colega que sirven al mismo amo, ambos servían a Cristo de la misma manera.
 
-### Colosenses 1:8 *"el cual también nos informó acerca del amor de ustedes en el Espíritu."*
+### Colosenses 1:7c *"...quien es fiel servidor de Cristo de parte nuestra,"* 
 
-#### Es interesante que Epafras pudo hablar con Pablo y los hermanos que estaban con pablo e informarle acerca de su amor de los creyentes colosenses, y esto no provenía de ellos mismos, sino del amor en el espíritu, estaban amando a través del espíritu que tenían en Cristo, y no en sus propias fuerzas 
+#### Pablo reconoce el fiel servicio de Epafras hacia Cristo, era alguien que compartía el mismo mensaje fiel del evangelio al igual que Pablo en su ministerio a los gentiles.
+
+#### La BTX4 lo traduce así: *...quien es fiel servidor de CRISTO para vosotros,*
+
+### Colosenses 1:8 *"el cual también nos informó acerca del amor de ustedes en el Espíritu."* 
+
+#### Epafras viajó para  visitar a Pablo e informarle sobre el amor que estaba produciendo el evangelio en los Colosenses.
+
+#### Este amor AGAPE era en el espíritu, un amor que el espíritu estaba produciendo en los creyentes, estaban amando a través del espíritu que tenían en Cristo y no en sus propias fuerzas. Gálatas 5:22; 1 Corintios 13:1-8; Colosenses 3:12-14; 1 Juan 4:11-12; Romanos 15:30 
+
+#### Epafras tenía mucho interés por los creyentes Colosenses y se preocupaba profundamente por la madurez espiritual de los creyentes. Colosenses 4:12 
 
 ---
 
 ## Colosenses 1:9-12 Oración por sabiduría y comprensión espiritual.
 
-#### Que impactante es que los creyentes oren por los nuevos creyentes, y las obras nuevas constantemente con un propósito específico, que sean completamente llenos del conocimiento que Dios da.
+#### Desde el día que se enteraron que los Colosenses habían creído en el evangelio, se pusieron a orar fervientemente para que puedan crecer en el conocimiento y comprensión espiritual, para que puedan andar de una manera digna que agrada al Señor, y que puedan vivir siendo fortalecidos con el poder del evangelio en su diario caminar.
 
 ### Colosenses 1:9 *"Por esta razón, también nosotros, desde el día que lo supimos, no hemos cesado de orar por ustedes, pidiendo que sean llenos del conocimiento de Su voluntad en toda sabiduría y comprensión espiritual,"*
 
-#### Es interesante que no dejaron de orar cuando supieron que hab;ian creido, sin embargo estaban pidiendo con un propósito mucho mayor que los creyentes salvos de Colosas sean llenos del conocimiento de su voluntad.
+#### Los motivos de oración ferviente por los creyentes era para que puedan ser llenos del conocimiento pleno de la voluntad de Dios, en una sabiduría y comprensión que solo el espíritu podría brindarles.
 
-### Colosenses 1:9a *"Por esta razón,..."* 
+### Colosenses 1:9a *"Por esta razón, también nosotros, desde el día que lo supimos,..."* 
 
-#### Les explica la razón fundamental de los motivos de orar, era por que Conocieron por medio de Epafras su informe de amor para con los santos en Colosas
+#### Empieza mostrando el propósito de las oraciones por los Colosenses, desde el día que se enteraron que habían creído en el evangelio. Colosenses 1:4
 
-### Colosenses 1:9b *"...también nosotros, desde el día que lo supimos,..."*
+### Colosenses 1:9b *"...no hemos cesado de orar por ustedes,..."* 
 
-#### Es importante saber que Pablo y los que con el estaban fueron impactados desde el día que conocieron que eran salvos los colosenses, se dedicaron a orar por ellos
+#### Ellos estaban orando intensamente y continuamente por los creyentes en Colosas con un propósito específico. Efesios 1:15-22, 3:14-19
 
-### Colosenses 1:9c *"...no hemos cesado de orar por ustedes,..."*
+### Colosenses 1:9c *"...pidiendo que sean llenos del conocimiento de Su voluntad..."* 
 
-#### No cesar de orar es no dejar de Orar, o constantemente estar orando por los creyentes,
+#### El motivo de la oración era por que conozcan plenamente la voluntad de Dios para sus vidas (o el verdadero conocimiento).  2 Timoteo 2:25; Tito 1:1
 
-### Colosenses 1:9d *"...pidiendo que sean llenos del conocimiento de Su voluntad..."*
+#### El ser llenos PLEROO significa hacer repleto u completamente lleno, se encuentra en voz pasiva, indicándonos que el sujeto recibe la acción (no se llena el mismo sino se deja ser llenado), el modo subjuntivo nos explica la posibilidad de que esto suceda (puede dejarse ser completamente llenado).
 
-#### El motivo de su oración constante era para que sean llenos del conocimiento de su voluntad, el conocimiento que es en verdad, y no solo que conozcan, sino que sean completamente llenos.
+#### Es muy importante el conocimiento de la voluntad de Dios. 1 Timoteo 2:4; Romanos 12:2; Oseas 4:6; Efesios 1:17, 5:17; 1 Juan 5:14
 
-### Colosenses 1:9e *"...en toda sabiduría y comprensión espiritual,"*
+#### La palabra conocimiento EPIGNOSIS expresa de manera intensificada un conocimiento pleno, es formado por la preposición EPI que significa acertado, y GNOSIS conocimiento, expresando un conocimiento acertado, esto contrasta con la corriente del gnosticismo que se enfoca en un conocimiento que no es acertado.
 
-#### En toda sabiduría espiritual, para que puedan tomar todas las mejores decisiones contando con la sabiduría que Dios da.
+### Colosenses 1:9d *"...en toda sabiduría y comprensión espiritual,"* 
 
-#### La comprensión o discernimiento espiritual es algo muy importante debido a que necesitamos discernir espiritualmente cada escritura escudriñando hasta lo mas profundo de Dios
+#### Es necesario que los creyentes puedan entender la voluntad de Dios en toda sabiduría, la sabiduría que viene de Dios no es terrenal sino que proviene de lo alto. Santiago 1:5, 3:17-18; 1 Corintios 1:18-20
 
-### Colosenses 1:10 *"para que anden como es digno del Señor, haciendo en todo, lo que le agrada, dando fruto en toda buena obra y creciendo en el conocimiento de Dios. "*
+#### La sabiduría que proviene de Dios viene de ir creciendo hacia la madurez espiritual y llegar a poder discernir las palabras por medio del espíritu. 1 Corintios 2:6-16
 
-#### Es interesante tener sabiduría y comprensión espiritual para el andar de los creyentes, de una manera digna en el señor, haciendo todo lo que le agrada y llevando fruto en toda buena obra.
+#### La palabra comprensión SUNESIS o inteligencia nos habla de la capacidad de discernir plenamente los conceptos y sus relaciones. 
+
+#### Una mala comprensión de las escrituras llevará a torcer la verdad de cada pasaje en su contexto original, es muy importante la precisión en cuanto a la palabra de verdad. 2 Timoteo 2:14-16; 2 Pedro 3:16-18
+
+### Colosenses 1:10 *"para que anden como es digno del Señor, haciendo en todo, lo que le agrada, dando fruto en toda buena obra y creciendo en el conocimiento de Dios."*
+
+#### El motivo de orar para que sean llenos del conocimiento de su voluntad, es para que los creyentes puedan tener un andar que pueda agradarle  en todo a Dios.
 
 ### Colosenses 1:10a *"para que anden como es digno del Señor,..."* 
 
-#### El andar de un creyente es en su santificación, un andar completamente de manera digna, haciendo todo lo que le agrada.
+#### La sabiduría y comprensión espiritual en el creyente resultará en entender como Dios quiere que anden los creyentes en su santificación (diario vivir). 
 
-### Colosenses 1:10b *"...haciendo en todo, lo que le agrada,..."*
+#### La palabra andar PERIPATEO significa de manera figurativa como vivir, comportarse o conducirse, es usada para mostrar como viven las personas. Efesios 4:17
 
-#### Que es hacer lo que le agrada?
+#### Dios quiere que el creyente (Justo) viva o ande continuamente confiando en él y sus provisiones (por fe), de la misma manera en que creímos en un mensaje para salvarnos confiando que él lo prometió, así podamos vivir nuestra santificación. Colosenses 2:6; Romanos 1:16-17; Hebreos 10:38; 2 Corintios 5:7
 
-#### Muchos podríamos pensar hacer algo para agradarle, sin embargo es andar conforme a lo que a él le agrada, que le agrada?, pues lo que Cristo hizo en la Cruz, en que resulta eso? en un andar piadoso y amor genuino entre los creyentes. eso el resultado de un permanecer en él, y Como puedo hacer únicamente lo que le agrada, pues necesitamos mucha sabiduría espiritual y comprensión que sólo el espíritu puede darnos.
+#### El vivir de una manera digna del Señor es contar con la vocación con la que hemos sido llamados, nos muestra estar continuamente contando por la fe en lo que ahora somos en Cristo Jesús y vivir de acuerdo a esa realidad. Efesios 4:1; 1 Corintios 1:2; 2 Juan 4,6
 
-### Colosenses 1:10c *"...dando fruto en toda buena obra y creciendo en el conocimiento de Dios."*
+### Colosenses 1:10b *"...haciendo en todo, lo que le agrada,..."* 
 
-#### El dar fruto no proviene de nosotros, sino que es el resultado de un andar constante en lo que Dios desea para sus hijos, eso resultará en un fruto visible visto en buenas obras, no de un auto-esfuerzo, sino de ser esforzados por la gracia de Dios en verdad y amor para con todos, llevando el amor del Padre en toda buena obra para con todos por medio de lo que Cristo hizo en la cruz.
+#### El creyente lleno del conocimiento pleno de su voluntad puede vivir agradando a Dios en todo.
 
-#### El crecer en el conocimiento de Dios es fundamental para los creyentes, esto nos librará del extravío de falsas doctrinas.
+#### Es muy importante saber que es lo que a Dios le agrada, para poder conocer su voluntad y andar sabiamente. Efesios 5:10-20
+
+### Colosenses 1:10c *"...dando fruto en toda buena obra..."* 
+
+#### Uno de los propósitos de conocer plenamente la voluntad de Dios es el que el creyente pueda estar llevando el fruto del evangelio en su vida en tiempo presente.
+
+#### La BTX4 lo traduce: *"....llevando fruto en toda buena obra..."* el creyente no produce el fruto, sino que lleva el fruto que el evangelio está produciendo. Colosenses 1:6
+
+#### El estar llevando el fruto del evangelio en la vida del creyente, puede manifestarse mediante las buenas obras que el Padre ha preparado para que andemos en ellas. Efesios 2:10; 2 Timoteo 3:17
+
+#### El deseo es que el creyente como resultado de conocer plenamente la voluntad de Dios pueda estar abundando en toda buena obra. Hebreos 13:21; Tito 2:6-8, 14; Filipenses 1:9-11
+
+### Colosenses 1:10d *"...y creciendo en el conocimiento de Dios."*  
+
+#### Habla de un crecimiento espiritual, creciendo por el conocimiento de Dios, o aumentando en el verdadero conocimiento.
+
+#### El verbo crecer AUXANO se encuentra en voz pasiva indicándonos que el sujeto recibe la acción, se deja ser aumentado. Este crecimiento tiene el fin de poder llevar a todos los creyentes a una madurez espiritual, 
+
+#### La palabra conocimiento EPIGNOSIS nos indica un conocimiento acertado u pleno de quien que es Dios, conforme vayamos creciendo en el pleno conocimiento avanzaremos hacia la madurez espiritual, a la estatura de la plenitud de Cristo, no solamente en conocimiento sino en el andar. Efesios 4:11-16
+
+#### Un pleno conocimiento de Dios basado en la verdad nos hará descansar en la realidad de quien es él, conocer sus atributos: su amor, paciencia, benignidad, bondad, gracia y misericordia, nos llevará a cada día seguir creciendo en la confianza de sus promesas que son seguras. Hebreos 10:19-25
 
 ### Colosenses 1:11 *"Rogamos que ustedes sean fortalecidos con todo poder según la potencia de Su gloria, para obtener toda perseverancia y paciencia, con gozo"*
 
-#### El ruego es que sean fortalecidos según el poder de su Gloria.
+#### Un ruego del apóstol Pablo por los creyentes es que no solamente conozcan plenamente todas las verdades acerca de Dios, sino que estén completamente fortalecidos con el poder de Dios en su diario caminar.
 
-### Colosenses 1:11a *"Rogamos que ustedes sean fortalecidos con todo poder según la potencia de Su gloria,..."* 
+### Colosenses 1:11a *"Rogamos que ustedes sean fortalecidos con todo poder..."* 
 
-#### Nos habla de ser fortalecidos con todo poder según la potencia de su gloria, el Poder de su gloria, ese mismo poder los creyentes ser fortalecidos
+#### El poder con el que serían fortalecidos los creyentes proviene de su espíritu. Efesios 3:16
 
-### Colosenses 1:11b *"...para obtener toda perseverancia y paciencia, con gozo"*
+#### La palabra fortalecidos DUNAMOO significa sacar fuerzas de la debilidad, se encuentra en voz pasiva, indicando que el sujeto recibe la acción en tiempo presente. 2 Timoteo 2:1
 
-#### Es interesante que siendo fortalecidos en su poder tiene el fin de obtener toda perseverancia, toda paciencia en el diario caminar, 
+#### El deseo de Pablo por los creyentes es que puedan conocer plenamente la esperanza de su llamamiento y la eficacia de la fuerza de su poder que obró en Cristo. Efesios 1:18-20
 
-#### Y además podemos hacerlo con gozo, en el diario caminar
+### Colosenses 1:11b *"...según la potencia de Su gloria,..."* 
+
+#### El creyente puede andar siendo fortalecido con el poder que resucitó a Cristo de los muertos. Efesios 1:19, 6:10.
+
+#### La palabra poder KRATOS nos habla del poder manifestado, un poder que ya se dio a conocer.
+
+#### El poder de Cristo mora en nosotros cuando entendemos que el es nuestra fortaleza y nuestro poder está en su gracia. 2 Corintios 12:9-10
+
+### Colosenses 1:11c *"...para obtener toda perseverancia y paciencia, con gozo"*
+
+#### Este conocimiento de su voluntad, tiene un beneficio práctico, el creyente puede obtener estos atributos en su diario caminar.
+
+#### *Toda perseverancia...*MAKRODSUMIA (constancia o longanimidad), es descrita como el "espíritu constante que nunca cederá" esa paciencia y fe son descritas en Abraham cuando recibió la promesa. Hebreos 6:15; Santiago 5:7-10
+
+##### El creyente puede obtener esta perseverancia que puede soportar cualquier prueba o espera y sobrellevar el sufrimiento sin ceder jamás.
+
+#### *Toda paciencia...* JUPOMONE se traduce paciencia o resistencia, esta palabra se usa frecuentemente relacionada con la tribulación, vivir bajo situaciones duras y desfavorables hasta el punto de llegar a morir como mártir. 1 Tesalonicenses 1:3; 2 Tesalonicenses 1:4; Apocalipsis 1:9, 3:10, 13:10
+
+##### Esta palabra es utilizada en conexión con la fe, la prueba de su fe produce paciencia. Santiago 1:3
+
+##### Es usada en la conexión con la esperanza, sabiendo que la tribulación produce paciencia.  Romanos 5:3-5; 2 Corintios 6:4; 2 Tesalonicenses 1:4
+
+#### *Con gozo....* Este gozo en las circunstancias o dificultades provienen de una plena comprensión de la voluntad de Dios y es producido por el espíritu en nosotros. Gálatas 2:22; Colosenses 2:7; 1 Tesalonicenses 5:16-18
+
+##### Este gozo puede estar presente inclusive en las circunstancias más difíciles, y puede reinar en la vida del creyente a pesar de las circunstancias debido a que esto proviene de Dios. Hechos 16:22-25; Colosenses 3:15-16
 
 ### Colosenses 1:12 *"dando gracias al Padre que nos ha capacitado para compartir la herencia de los santos en la Luz."*
 
-#### Siendo agradecidos por que Dios nos brindó todo lo necesario para compartir la herencia a todos los creyentes.
+#### Este agradecimiento es basado en que el Padre nos ha provisto todo lo necesario para compartir esta buena noticia de su herencia a los santos. Hechos 20:32, 26:18
+
+#### Existen dones provistos por Dios para la edificación del cuerpo, la iglesia. Efesios 4:11-16
 
 ### Colosenses 1:12a *"dando gracias al Padre que nos ha capacitado..."* 
 
-#### Dando gracias es un continuo agradecimiento al padre debido a que ya nos ha capacitado, nos ha dado todas las herramientas y el poder para su obra.
+#### La palabra dando gracias EUJARISTEO se encuentra en modo participio, indicándonos de manera continua se realiza la acción por el creyente. 1 Pedro 1:3-4
+
+#### Damos gracias a Dios por habernos hecho conocer su gracia a través de la salvación, fuimos hechos justos por su gracia, y ahora somos santificados a través de su gracia, y conocemos todas las incomparables riquezas de la herencia de los santos, que se encuentran escritas en la biblia y fiel es el que lo prometió.
+
+#### La palabra capacitado JIKANOO o nos hizo aptos se encuentra en aoristo participio, indicándonos como una acción u hecho completado, este hecho es una realidad establecida por Dios para cada creyente, no basado en nuestros méritos, sino en el propósito suyo. 
+
+#### Dios quiere que el creyente este enteramente capacitado en el pleno conocimiento de la verdad y la herencia de los santos. 1 Timoteo 2:4
 
 ### Colosenses 1:12b *"...para compartir la herencia de los santos en la Luz."*
 
-#### Podemos compartir de la herencia que tenemos a todos los santos, y es de ellos esta herencia, en la luz? los que están andando conforme  a la luz? o a través de la luz?
+#### Uno de los propósitos del apostolado de Pablo era dar a conocer la herencia entre los santificados. Hechos 26:15-18 
+
+#### El apóstol Pablo deseaba que los creyentes estén completamente capacitados en el conocimiento de la herencia que les ha sido dado a los santos. Hechos 20:32, 27; 2 Timoteo 2:1-2
+
+#### Cada creyente ha sido predestinado (Fijar un destino) a tener una herencia, Dios fijó un destino, los que están en Cristo (en él) - tendrán una herencia. Efesios 1:11, 18; Hebreos 9:15
+
+#### Los creyentes tenemos una herencia reservada en los cielos, la cual no es perecedera. 1 Pedro 1:3-5
+
+#### *para compartir...* Algo importante de esta herencia es que tiene el propósito de ser compartida, el deseo es que cada creyente pueda compartir esta herencia entre los santos.
+
+#### La BTX4 lo traduce así: *"...que os hizo aptos para participar de la herencia de los santos en la luz,"* Los creyentes ya somos hechos partícipes de esta herencia.
+
+#### La garantía de que esta herencia es completamente real para el creyente, es el espíritu santo que recibimos al momento de oír y creer en el evangelio. Efesios 1:13-14; Tito 3:5-7
+
+#### Cada creyente necesita el poder del evangelio en su vida, para poder compartir de esta herencia entre los santos, no lo podemos hacer en nuestras propias fuerzas o autodeterminación, necesitamos depender completamente de lo que nos ha provisto para poder realizar su obra.
+
+#### *"...los santos en la luz"* no es una declaración condicional, si el creyente está en o no en la luz, sino está indicando que los santos en la luz tienen una herencia.
 
 ---
 
@@ -288,133 +420,285 @@ Title: Epístola del apóstol Pablo a los Colosenses
 
 ## Colosenses 1:13-15 Redimidos y perdonados por Cristo.
 
+#### Nos mostrará la historia de nuestra redención, como fuimos rescatados del dominio de las tinieblas y la nueva posición en la que nos encontramos.
+
+#### Nos mostrará que es lo que Cristo (una persona: Dios-hombre) logró por nosotros y como esa victoria (una obra: el evangelio) cuenta a nuestro favor.
+
 ### Colosenses 1:13 *"Porque Él nos libró del dominio de las tinieblas y nos trasladó al reino de Su Hijo amado,"*
 
-#### Pablo y nosotros fuimos librados de las tinieblas, y ahora estamos en el reino de su hijo amado libres de las tinieblas.
+#### Podemos observar en este pasaje dos maneras diferentes de gobernar:
 
-#### Cual es el reino de su amado hijo? es un lugar posicional en el cual nos ha trasladado?
+#### **Según el dominio de las tinieblas**
 
-#### La mención Nos, incluye a Pablo a los lectores de Colosas, y a nosotros tambien que estamos leyendo esta carta, para mostrarnos cuales son las inescrutables riquezas que tenemos en Cristo.
+#### Cada persona que se encuentra en este dominio tiene una condición totalmente separada de la vida y alejada de Dios. Efesios 2:1-3, 12-13; Hechos 26:18
+
+#### Satanás se encarga tapar la luz del evangelio entre los incrédulos cegando su entendimiento. 2 Corintios 4:4-5
+
+#### Las personas sujetas al imperio de la muerte se encuentran sujetos a esclavitud. Hebreos 2:14-15
+
+#### **Según el reino de su hijo amado**
+
+#### Todos los creyentes se encuentran en calidad de herederos, santos en la luz, amados e hijos aceptos al Padre. Efesios 2:19; Colosenses 1:12
 
 ### Colosenses 1:13a *"Porque Él nos libró del dominio de las tinieblas..."* 
 
-#### El nos libro de las tinieblas, del Dominio en el cual nos encontrábamos y fuimos librados por él.
+#### El pronombre relativo (Él) en este versículo es referido al Padre, debido a que no existe una ruptura sintáctica entre el versículo anterior, dando continuidad al argumento que está expresando.
+
+#### La BTX4 lo traduce así: *"dando gracias al Padre con gozo, que os hizo aptos para participar de la herencia de los santos en la luz, quien nos rescató de la potestad de la tiniebla y nos trasladó al reino del Hijo de su amor,"* 
+
+#### El verbo libró RUOMAI significa rescatar, arrancar de un peligro o sacar de una situación amenazante, se encuentra en tiempo aoristo, voz media, indicándonos como un hecho completo en la que el creyente participa del resultado.
+
+#### Los creyentes fuimos completamente liberados del dominio de las tinieblas y del dominio de satanás en el cual estábamos. 1 Juan 5:19; Efesios 2:2, 6:12
+
+#### La palabra dominio EXOUSIA nos habla de una potestad, autoridad que ejerce poder, o derecho de gobernar, cabe aclarar que este dominio de Satanás (príncipe de la potestad del aire), no fue dado por Dios, sino que satanás usurpó esta autoridad al hombre. Génesis 1:26-28; Lucas 4:6
 
 ### Colosenses 1:13b *"...y nos trasladó al reino de Su Hijo amado,"*
 
-#### Y fuimos trasladados al reino de su Hijo amado, posicionalmente ahora nos encontramos en el reino de su hijo, ya no en el dominio de las tinieblas. 
+#### El verbo trasladó METHISTEMI nos habla de quitar, llevar lejos o cambiar de lugar, se encuentra en aoristo indicativo, mostrándonos que esto fue un hecho completo, que puede ser entendido como un traslado colectivo.
 
-#### Dios ahora nos ve en el reino de su hijo amado siendo siervos.
+#### Todos los creyentes fuimos trasladados, quitados del reino de las tinieblas y ahora nos encontramos en el reino de su hijo amado, ese es el lugar posicional en el cual cada creyente se encuentra.
+
+#### Es importante entender las diferencias conceptuales entre el reino de su hijo amado (Creyentes de la era la Iglesia) y el reino mesiánico prometido a Israel (Creyentes del antiguo testamento).
+
+##### **El reino de su hijo amado**
+
+##### Los creyentes de la edad de la iglesia forman parte del reino de su hijo en calidad de herederos, siervos de justicia y santos en la luz.
+
+##### Esto no quiere decir que la iglesia reemplaza a Israel, o que Dios ha desechado sus promesas para con Israel, sino que ahora se encuentra trabajando con los santos de la iglesia. Romanos 11:1-2, 25-26
+
+##### Los creyentes actualmente no se encuentran reinando con Cristo a las naciones, el reinar con Cristo es en un tiempo futuro, conocido como el milenio. 2 Timoteo 2:12; Apocalipsis 20:6
+
+##### **El reino prometido a Israel**
+
+##### Los israelitas forman parte del pueblo escogido de Dios, se encuentran bajo los pactos establecidos con la nación de Israel, y esperan en las promesas que Dios realizó a su pueblo escogido. 
+
+##### El establecimiento del reino prometido a Israel se encuentra en un tiempo futuro, provisto por el  Padre. Hechos 1:6-7
+
+##### El reino dado al hijo del hombre es un dominio eterno, sobre todos pueblos, naciones y lenguas. Daniel 7:13-14
+
+##### Jesús durante su ministerio terrenal vino a anunciar sobre su reino prometido a Israel. Mateo 16:28 
+
+##### Cristo actualmente no se encuentra reinando sobre todas las naciones, eso es un acontecimiento futuro, el cual sucederá durante el milenio. Apocalipsis 20:6
 
 ### Colosenses 1:14 *"en quien tenemos redención: el perdón de los pecados."*
 
-#### En Cristo es que tenemos la redención, el rescate que tuvimos
-
-#### El perdón de pecados, fuimos rescatados de las tinieblas a su luz admirable, al reino de su amado hijo, y ahora somos parte de él
+#### Nos explicará como obtuvimos el perdón completo de nuestros pecados, siendo rescatados completamente del dominio de las tinieblas.
 
 ### Colosenses 1:14a *"en quien tenemos redención:..."* 
 
-#### En Cristo nosotros tuvimos la redención, el rescate del lugar donde nos encontrábamos, no podíamos rescatarnos a nosotros mismos, sino que necesitábamos ser rescatados.
+#### Nos explicará que en una persona *"en quien"* (Jesucristo), obtuvimos la redención. Romanos 3:24; Efesios 1:7
 
-#### Es importante mencionar en quien? debido a que es alguien que nos rescató y en él tenemos la redención.
+#### La palabra redención ΑPOLUTROSIS expresa un rescate o liberación, originalmente se refería a pagar el precio de rescate por un esclavo o prisionero.
+
+#### Cada persona que se encontraba en el dominio de las tinieblas (en calidad de esclavo), era incapaz de salvarse por sí mismo, necesitábamos ser rescatados. Romanos 3:10-12, 20 ; Tito 3:5
+
+#### Cada creyente fue rescatado por precio, fue un precio altísimo que se pagó, el precio pagado por nuestra liberación y redención fue la sangre de Cristo. 1 Corintios 6:20, 7:23; Hechos 20:28
+
+#### La redención va ligada al perdón de pecados, explicándonos que estábamos sujetos a la esclavitud de nuestros pecados y fuimos completamente rescatados.
 
 ### Colosenses 1:14b *"...el perdón de los pecados."*
 
-#### El perdón de pecados, Cuantos pecados? pues el perdon de Pecados.
+#### El perdón de pecados viene de parte de Dios hacia el hombre, basado en la obra de Jesucristo es que obtenemos este perdón.
 
-#### Ese genial poder entender que nuestros pecados fueron perdonados debido a la redención, que es en Cristo Jesús.
+#### La palabra perdón AFESIS es traducida en diferentes pasajes como liberación (de cautiverio), perdón y remisión de pecados.
 
-#### Ahora en esta nueva posición en la cual nos encontramos pues recordemos que somos perdonados todos nuestros pecados, completamente redimidos y ahora nos encontramos en el reino de su amado hijo Jesucristo. esta es nuestra nueva identidad y posición en la cual nos encontramos.
+##### Juan el bautista anunciaba el arrepentimiento (cambio de mente) para perdón de pecados. Marcos 1:4; Lucas 3:3 
 
+##### Jesús durante su ministerio terrenal, anunció el perdón de pecados. Mateo 26:28; Lucas 24:47
 
+##### Este perdón de pecados fue anunciado primeramente a Israel (el pueblo escogido de Dios) Lucas 1:77, 24:47; Hechos 2:38, 5:31, 10:43, 13:38, 26:18
 
-#### En estos pasajes empezarán a hablar acerca de Cristo y por que es el principal de toda la creación. el primero y el más importante. y el primero en todo lo creado.
+##### En las cartas apostólicas tenemos registrado el perdón de pecados. Efesios 1:7; 1 Juan 1:9, 2:12
 
-### Colosenses 1:15 *"Él es la imagen del Dios invisible, el primogénito de toda creación."*
+##### En el antiguo testamento podemos observar las promesas hechas por Dios con respecto a las transgresiones y rebeliones perdonadas. Salmos 103:11-12; Isaías 43:25; Jeremías 31:34; Miqueas 7:18-19; Isaías 1:18
 
-#### Cristo es la completa imagen de Dios, Cristo es el primero en toda la creación
+##### Por medio del sacrificio de Cristo, hecho una sola vez y para siempre, fueron quitados todos los pecados. Hebreos 7:27, 8:12, 14, 10:10, 17
 
-### Colosenses 1:15a *"Él es la imagen del Dios invisible,..."* 
-
-#### Cristo es la completa imagen de Dios, Cristo refleja visiblemente lo que es Dios. de manera invisible.
-
-#### Cristo es el reflejo completo de Dios en cuerpo humano, Si vieron a Cristo vieron completamente al Padre en cuerpo de carne.
-
-### Colosenses 1:15b *"...el primogénito de toda creación."*
-
-#### Cristo es el Primero en toda la creación. es el Primero en Todo, para que el tenga la primacía de toda la creación
+##### Cristo mismo llevó nuestros pecados, para que fuéramos perdonados y hechos justos delante de Dios. 1 Pedro 2:24
 
 ---
 
-## Colosenses 1:16-17 Cristo Creador y sustentador de la creación.
+## Colosenses 1:15-17 Cristo Creador y sustentador de la creación.
+
+#### Expondrá la supremacía de Cristo en relación a la creación, como creador y sustentador, anterior a la creación y el que da la permanencia a todas las cosas.
+
+#### Dentro de los primeros años de la iglesia existían corrientes filosóficas como el gnosticismo, que contrastaban las enseñanzas de la deidad de Cristo, el apóstol Pablo explicará durante la carta verdades fundamentales con respecto a la divinidad y humanidad de Cristo.
+
+### Colosenses 1:15 *"Él es la imagen del Dios invisible, el primogénito de toda creación."*
+
+#### Cristo es Dios-hombre y refleja de manera visible todos los atributos de Dios-Padre invisible, dándolo a conocer por medio de su cuerpo de carne. Juan 1:18
+
+### Colosenses 1:15a *"Él es la imagen del Dios invisible,..."* 
+
+#### El pronombre Él en este versículo es referido a Cristo, debido a que empezará a describir los atributos divinos de Cristo-Hombre.
+
+#### La palabra imagen EIKON expresa una representación visible, manifestación en semejanza o apariencia. 
+
+#### Cristo-hombre refleja completamente lo que Dios-Creador es, expresando Cristo mismo que si le vieron a él vieron al padre en su misma naturaleza. Juan 14:8-11
+
+#### Esta manifestación visible de Dios-Hombre va en contraste directo con el pensamiento gnóstico que afirmaban que la materia por naturaleza era mala, y lo bueno era el espíritu, sin embargo Dios-Creador se hizo materia, carne y hueso, completamente visible. Juan 1:1-3, 14
+
+#### Cuando Cristo vino en el tiempo establecido por Dios, reflejó completamente la naturaleza exacta de Dios. Hebreos 1:3; Gálatas 4:4 
+
+#### Una de las características de Dios-Creador es que es invisible.1 Timoteo 1:17, 6:16; Hebreos 11:27 Romanos 1:20; Juan 4:24.
+
+#### Podemos ver 3 aspectos importantes en relación a la imagen de Dios.
+
+##### **Adán** al momento de ser creado fue hecho según la imagen de Dios. Génesis 1:26-27, 9:6
+
+##### **Cristo** es la imagen de Dios. Colosenses 1:15
+
+##### **El creyente** es conformado a la imagen de Cristo. Romanos 8:29
+
+###  Colosenses 1:15b *"...el primogénito de toda creación."*
+
+#### Cristo es el principal de toda la creación, muestra la preeminencia y autoridad.
+
+#### La NTV lo traduce: *"...es supremo sobre toda la creación"*
+
+#### La palabra primogénito PROTOTOKOS es un adjetivo sustantivado que significa literalmente primero en rango, estatus y soberanía, no necesariamente el primer nacido cronológicamente.
+
+##### David no fue el primer hijo nacido, sin embargo es llamado primogénito por la posición del pacto de Dios con David. Salmos 89:20-21, 27
+
+##### La nación de Israel es llamada primogénito, sin embargo no fue la primera nación en ser creada, sino preeminente en la relación con Dios, es su nación escogida. Éxodo 4:22
+
+##### Efraín es llamado primogénito, sin embargo el no fue el primer nacido de José. Jeremías 31:9
+
+#### Cristo no fue el primero en ser creado, debido a que afirmaríamos que Jesús (Dios-Hombre) es un ser creado, sin embargo las escrituras nos muestran que Dios se hizo hombre y habitó entre nosotros. Juan 1-4, 14
 
 ### Colosenses 1:16 *"Porque en Él fueron creadas todas las cosas, tanto en los cielos como en la tierra, visibles e invisibles; ya sean tronos o dominios o poderes o autoridades; todo ha sido creado por medio de Él y para Él."*
 
-#### En Cristo fueron creados todo lo que existe, todo fue creado por medio de él y para él. de el es todo lo creado.
+#### El apóstol Pablo muestra a Cristo como el principal sobre toda la creación y ahora nos mostrará 3 perspectivas gramaticales complementarias sobre la creación.
+
+##### **En Él:** Nos explica donde ocurrió la acción.
+
+##### **Por medio de Él:** Nos explica por medio de quien ocurrió la acción.
+
+##### **Para Él:** Nos explica el propósito y finalidad para quien se realizó la acción.
 
 ### Colosenses 1:16a *"Porque en Él fueron creadas todas las cosas,..."* 
 
-#### En Cristo fue creado todas las cosas, todo lo que existe fue creado en él, es interesante poder observar en él, debido a que Cristo en la carne todavía existía, Pero todo ya había sido creado en El, solo faltaba que El verbo se hiciera carne y muriera para completar todo lo que estaba escrito desde antes de la fundación de los tiempos.
+#### Dentro del relato de la creación, Dios creó los cielos y la tierra, sin embargo en este pasaje podemos ver que *en* Cristo fueron creadas todas las cosas. Juan 1:3; Hebreos 1:2; Génesis 1:1
+
+#### Podría fácilmente decir, Cristo creó todas las cosas, sin embargo en este pasaje hace el énfasis de como Cristo se relaciona con todo lo creado, indicando nada creado existiría fuera de él.
+
+##### **En Él:** (ἐν + dativo) La preposición en él nos indica que bajo su autoridad, dominio y poder fueron creadas todas las cosas, responde a la pregunta ¿Donde ocurrió todo?.
+
+#### El verbo *fueron creadas* KTIZO se encuentra en aoristo pasivo indicativo, expresando un hecho real y completo, donde la creación recibe la acción.
 
 ### Colosenses 1:16b *"...tanto en los cielos como en la tierra, visibles e invisibles;..."*
 
-#### En él fueron creados los cielos, todo el universo entero, como la tierra, todo lo visible sobre la faz de la tierra fue creado en él, y no solo eso sino tambien todas las cosas invisibles tambien fueron creadas por medio de él, todas las cosas que no podemos ver. fue hecho por Él.
+#### En Cristo fue creado todo el universo entero, desde lo que podemos ver, lo perceptible, material, temporal , y lo que no podemos ver, lo imperceptible, espiritual, eterno, ambas realidades existen dentro de lo creado. Romanos 1:20; 2 Corintios 4:18; Hebreos 11:3
 
-### Colosenses 1:16c *"...ya sean tronos o dominios o poderes o autoridades; todo ha sido creado por medio de Él y para Él."*
+### Colosenses 1:16c *"...ya sean tronos o dominios o poderes o autoridades;....*
 
-#### Todos los tronos, los dominios, los poderes, las autoridades, fueron creados por medio de él y para él.
+#### Podemos observar que Cristo creó distintas categorías de autoridades. Efesios 1:20-21; Colosenses 2:15; Efesios 1:21, 3:10-11
 
-#### Cuales son los tronos? celestiales?
+##### *Los tronos* hacen referencia a asientos de autoridad, simbolizando reinado, gobierno y soberanía. Apocalipsis 4:4, 20:4
 
-#### Los dominios? Terrenales y celestiales?
+##### *Los dominios* hacen referencia a señoríos, control y dominio, enfatiza el hecho de gobernar. 2 Pedro 2:10
 
-#### Los poderes? hay poderes angélicos y humanos?
+##### *Los poderes* hacen referencia al derecho o poder para actuar. Romanos 8:38
 
-#### Las autoridades, de las regiones celestes?
+##### *Las autoridades* hacen referencia a la cabeza o autoridad al mando.
 
-#### En resumen todo ha sido creado por medio de él o a través de él como creador,
+#### Cabe mencionar que existen poderes y potestades de las tinieblas, las cuales no fueron creados por Cristo, sin embargo, a pesar de su rebelión juntamente con satanás, conservan su jerarquía y autoridad dada en su creación. Efesios 6:12
 
-#### Y todo lo que existe ha sido creado para él, para posesión suya
+#### Cristo no se encuentra dentro de esta jerarquía, sino como creador del universo es completamente superior a todo lo creado. Daniel 4:35
+
+### Colosenses 1:16d *..."todo ha sido creado por medio de Él y para Él."*
+
+#### En resumen todo lo que existe fue creado a través de Cristo, con el propósito que todo sea suyo, el creó el universo para sus propósitos. Romanos 11:36; Apocalipsis 4:11
+
+##### **Por medio de Él:** (διά + genitivo) Indica el medio por el cual se ejecuta la acción ¿Por medio de quién?. Juan 1:3; Hebreos 1:2; 1 Corintios 8:6 
+
+##### **Para Él:** (εἰς + acusativo) Indica el propósito, finalidad por el cual fue creado todo lo existente, responde a la pregunta ¿Para quién ó hacia qué fin?
 
 ### Colosenses 1:17 *"Y Él es antes de todas las cosas, y en Él todas las cosas permanecen."*
 
-#### Es interesante que el es antes de todo lo creado, antes de que cualquier cosa fuera creada él ya existía.
+#### Pablo está describiendo una secuencia, de Cristo en relación a su creación.
+
+##### *"Todas las cosas fueron creadas por él"* muestra que por medio de Cristo todo fue creado.
+
+##### *"él es antes de todas las cosas"* muestra la existencia previa de Cristo con respecto a lo creado.
+
+##### *"Todas las cosas permanecen en él"* muestra la relación continua de Cristo con lo creado.
 
 ### Colosenses 1:17a *"Y Él es antes de todas las cosas,..."* 
 
-#### Cristo es antes de la creación, mucho antes de que se crearan el cielo y la tierra, mucho antes que satanás y sus potestades,
+#### Se podría decir, *él es* ó ha existido antes de todas las cosas. Juan 1:1; 8:58
+
+#### Desde la eternidad, antes fundar el mundo ya estaba Cristo y su plan de redención preparado. 1 Pedro 1:20; 2 Timoteo 1:9
 
 ### Colosenses 1:17b *"...y en Él todas las cosas permanecen."*
 
-#### Todas las cosas en él permanecen, tiene el control y permanencia de todo lo creado están en su autoridad y potestad
+#### El universo y todo lo creado, es sustentado y sostenido activamente por Cristo por medio de su poder, dominio y autoridad, y permanece de acuerdo a su voluntad.
+
+#### Cristo como sustentador de su creación sostiene todo lo creado, incluyendo a animales y personas, toda su creación se encuentra bajo su sostén. Lucas 12:6-7; Mateo 6:25-34, 10:29-30
+
+#### La verbo permanecen SUNISTANO se encuentra en tiempo perfecto activo indicativo, indicándonos una acción completada en el pasado con un resultado activo vigente en el presente, la creación fue establecida y permanece en ese estado continuo siendo sostenida por él.
 
 ---
 
 ## Colosenses 1:18-19 Cristo el Principal en todo.
 
+#### Cristo como principal en la iglesia, principal en la resurrección, en todo tiene el primer lugar y honor, por que en Él habita la plenitud de Dios.
+
 ### Colosenses 1:18 *"Él es también la cabeza del cuerpo que es la iglesia. Él es el principio, el primogénito de entre los muertos, a fin de que Él tenga en todo la primacía."*
 
-#### El es la cabeza de la iglesia el primero entre los muertos y en todo tiene el primer lugar, la primacía.
+#### Nos muestra como Cristo tiene el primer lugar de honor en todo, en la iglesia, en el principio, en la resurrección, y en todo tiene la primacía.
 
 ### Colosenses 1:18a *"Él es también la cabeza del cuerpo que es la iglesia..."* 
 
-#### Cristo es la cabeza del cuerpo, que es la iglesia, nos mostrará una perspectiva de Cristo como la cabeza del cuerpo que es su iglesia.
+#### Nos muestra como Cristo es la cabeza sobre todas las cosas en la iglesia. Efesios 1:22-23, 4:15
+
+#### Dentro del cuerpo de Cristo existen diferentes roles, de pastor, ancianos, líderes, y siervos ,etc., sin embargo ninguno de estos roles del cuerpo son la cabeza de la iglesia. Colosenses 2:19; 1 Corintios 12:12-13
 
 ### Colosenses 1:18b *"...Él es el principio,..."*
 
-#### Cristo es el principio o el principal
+#### La palabra principio ARJE es un sustantivo nominativo que significa comienzo, originador o iniciador, va ligado al contexto mas cercano que es la iglesia y la resurrección.
+
+#### El es el principio ú originador de la iglesia, gracias al inicio de Cristo dio origen ó principio a la iglesia.
+
+#### El es el principio y originador de los resucitados, Gracias al inicio de Cristo dio origen o principio a todos los resucitados.
+
+#### Cristo se muestra en otros pasajes como el principio o iniciador de la creación de Dios. Apocalipsis 3:14
+
+#### Dentro del ámbito de lo que Cristo es, Él es el principio y el fin de todo lo que existe. Apocalipsis  21:6, 22:13; Isaías 41:4
 
 ### Colosenses 1:18c *"...el primogénito de entre los muertos,..."*
 
-#### Fue el primero en resucitar de entre los muertos para nunca mas morir. El Primer resucitado para vida eterna
+#### Podemos ver de nuevo el uso de la palabra primogénito PROTOTOKOS dándonos a entender que Cristo es el primero que resucitó de entre los muertos.
+
+#### Podemos ver que el primer resucitado cronológicamente en las escrituras, no fue Cristo.
+
+##### El hijo de la viuda de Sarepta fue revivido por que Dios oyó la oración de Elías. 1 Reyes 17:22
+
+##### Un hombre revivió al tocar los huesos de Eliseo. 2 Reyes 13:21
+
+##### Durante el ministerio terrenal de Jesús, podemos ver que resucitó a Lázaro. Juan 11:43-44
+
+##### Jesús resucita al hijo de la viuda de Naín. Lucas 7:14-15
+
+##### Jesús resucita a la hija de Jairo. Marcos 7:38-42
+
+#### Todas estas personas que resucitaron, mas adelante volvieron a la muerte, sin embargo Cristo es el primero en resucitar para nunca mas morir, fue el primero ó principal que inició la resurrección definitiva. Romanos 6:9-10; Hechos 26:23; 1 Corintios 15:20-23; Apocalipsis 1:5. 
 
 ### Colosenses 1:18d *"...a fin de que Él tenga en todo la primacía."*
 
-#### En todo tiene el primer lugar 
+#### La conjunción final *"...a fin de que..."* explica el propósito o resultado en conexión a lo que explica en el versículo, Cristo siendo la cabeza del cuerpo, el principio, el primogénito de entre los muertos, con el fin de que absolutamente en todo él sea el primero y ocupe el primer lugar.
+
+#### El verbo primacía ó preeminencia PROTEUO significa ser el que ocupa el lugar supremo, el primero en rango, autoridad y honor, la supremacía en todo y sin excepción, se encuentra en tiempo presente activo participio, indicando un estado continuo y permanente.
+
+#### Podemos ver que Cristo se encuentra por encima de absolutamente todo, y es exaltado hasta lo sumo. Efesios 1:21-22; Filipenses 2:9-11; Apocalipsis 5:12-13
 
 ### Colosenses 1:19 *"Porque agradó al Padre que en Él habitara toda la plenitud,"*
 
-#### A Dios le agradó que en Cristo habitara toda la plenitud de Dios
+#### Podemos ver que al Padre le plació esto, que de su buena intención de su voluntad toda la Plenitud (la totalidad absoluta de lo que Dios es) habitara en Cristo. Colosenses 2:9
+
+#### La palabra plenitud PLEROMA, expresa la totalidad, completitud, abundancia hasta llenarlo todo.
+
+#### Existía el uso de la plenitud en el pensamiento gnóstico de la época, los cuales pensaban que había muchos caminos a la plenitud, por diferentes medios e intermediarios, sin embargo el apóstol Pablo afirma vehementemente que la plenitud de Dios (Dios en su totalidad) reside, permanece y se establece en Cristo.
 
 ---
 
@@ -422,91 +706,145 @@ Title: Epístola del apóstol Pablo a los Colosenses
 
 ### Colosenses 1:20 *"y por medio de Él reconciliar todas las cosas consigo, habiendo hecho la paz por medio de la sangre de Su cruz, por medio de Él, repito, ya sean las que están en la tierra o las que están en los cielos."*
 
-#### Por medio de Cristo Dios quiso reconciliar todas las cosas
+#### Dios escogió un medio para reconciliar todas las cosas consigo mismo, fue a través de la sangre de su hijo en la cruz. 
 
 ### Colosenses 1:20a *" y por medio de Él reconciliar todas las cosas consigo,..."* 
 
-#### Por medio de su sacrifició de Cristo reconcilar todas las cosas que estaban rotas. consigo mismo, fue un plan planificado desde la eternidad el de reconciliar todo consigo mismo
+#### El medio de reconciliación es Cristo, enviando a su hijo a morir por nuestros pecados y de esa única manera reconciliarnos con el Padre. 2 Corintios 5:18
+
+#### Necesitábamos ser reconciliados con él, debido a que estábamos en una condición separada de Dios y de Cristo. Efesios 2:1-3
+
+#### Ningún humano busca a Dios para reconciliarse, la respuesta natural de la humanidad es esconderse y alejarse de Dios, es Dios tomando la iniciativa de reconciliar todas las cosas consigo. Génesis 3:8-13; Romanos 3:9-12
+
+#### El motivo de la separación es debido a que el pecado entró al mundo a través de Adán y todos pecan. Romanos 5:12, 16
+
+#### El plan de la reconciliación de todas las cosas fue hecho inclusive antes de fundar el mundo, ya estaba planificado que Cristo fuera a morir por nuestros pecados y reconciliar todas las cosas.
 
 ### Colosenses 1:20b *"...habiendo hecho la paz por medio de la sangre de Su cruz,..."*
 
-#### Dios hizo la paz por medio de su sangre en la Cruz
+#### Los creyentes ahora obtienen paz con Dios por medio del sacrificio que Cristo realizó a favor nuestro. Romanos 5:1-2, 10
+
+#### El verbo habiendo hecho paz EIRENOPOIEO nos expresa de hacer objetiva la paz, se encuentra en aoristo activo participio, indicándonos como una acción completa y decisiva, un hecho consumado.
+
+#### La sangre de Cristo cobra un valor muy importante, siendo expiatorio y propiciatorio, expió nuestros pecados, y tambien propició la ira de Dios en el calvario, cumpliendo así la justicia de Dios y el amor de Dios hacia el mundo. Isaías 53:10; Juan 3:16; Romanos 3:25
+
+#### En el antiguo testamento observamos que la ley exigía derramamiento de sangre de animales para la expiación de pecados, sin embargo estos no lograban quitar los pecados, sino apuntaban a un mayor sacrificio, la sangre de Cristo que si logra quitar los pecados. Levítico 17:11; Hebreos 9:22, 10:1-12
+
+#### Cristo cargó en su cuerpo de carne todos nuestros pecados, rompiendo esa barrera que nos separaba de Dios, nuestros pecados. 1 Pedro 1:18-21; 2:24, 3:18
 
 ### Colosenses 1:20c *"...por medio de Él, repito, ya sean las que están en la tierra o las que están en los cielos."*
 
-#### Por medio de Cristo Reconcilió todas las cosas que estaban en la tierra y en los cielos.
+#### A través de Cristo todas las cosas fueron reconcilias, incluyendo aquí dos lugares diferentes, los cielos y la tierra.
+
+#### Los cielos y la tierra fueron creadas por medio de Cristo y para él, y ahora nos muestra que en él tambien son reconciliadas todas las cosas. Colosenses 1:16
 
 ---
 
 ## Colosenses 1:21-23 Reconciliados por Dios en la esperanza del evangelio.
 
+#### El apóstol Pablo les recordará a los creyentes, su condición en la que se encontraban antes de conocer el evangelio, y como habían sido reconciliados por medio del evangelio, el deseo del apóstol Pablo es que permanezcan firmes y cimentados en esa esperanza que habían oído y creído.
+
 ### Colosenses 1:21 *"Y aunque ustedes antes estaban alejados y eran de ánimo hostil, ocupados en malas obras,"*
 
-#### Empezará a recordar a los creyentes que antes se encontraban alejados de Dios, y alejados de tener alguna paz con Dios, La ocupación era totalmente en malas obras. 
+#### La condición del no creyente es totalmente separados y en rebelión a Dios, las obras que produce son totalmente desagradables a Dios.
 
 ### Colosenses 1:21a *"Y aunque ustedes antes estaban alejados y eran de ánimo hostil,..."* 
 
-#### Les explicará a los creyentes que antes posicionalmente se encontraban alejados de Dios, eran de ánimo contrario ó enemigo.
+#### La condición anterior de todos los creyentes era que estábamos alejados de Dios, éramos extraños y enemigos, hijos de ira, totalmente separados de las promesas y los pactos. Romanos 5:10; Efesios 2:3, 12, 4:17-19
+
+#### El verbo alejados APALOTRIOO nos indica que estábamos completamente excluidos, ajenos a algo.
+
+#### El ánimo hostil ó literalmente enemigos en mente EJDSROS, nos muestra una condición totalmente separada de Dios, es un adjetivo que esta describiendo como adversarios ó enemigos.
+
+#### La BTX4 lo traduce:*"Y a vosotros, que en otro tiempo erais extraños y enemigos, por tener la mente ocupada en las malas obras,"*
 
 ### Colosenses 1:21b *"...ocupados en malas obras,"*
 
-#### La ocupación que tenían era en completamente malas obras, no podían producir ninguna buena obra.
+#### Cada persona no creyente se encuentra en (dentro de) ó bajo malas obras, debido a este hecho no podíamos producir ninguna buena obra agradable a Dios.
+
+#### En efesios nos muestra que era necesario ser hechura suya en Cristo Jesús para hacer buenas obras. Efesios 2:10
 
 ### Colosenses 1:22 *"sin embargo, ahora Dios los ha reconciliado en Cristo en Su cuerpo de carne, mediante Su muerte, a fin de presentarlos santos, sin mancha e irreprensibles delante de Él."*
 
-#### La reconciliación que Dios hizo fue por medio de su muerte, teniendo como fin algo que posicionalmente nos hizo para con nosotros, que seamos santos, sin mancha e irreprensibles por lo que Cristo hizo en la cruz.
+#### Vemos un contraste significativo, la condición en la que nos encontrábamos es totalmente cambiada y transformada, antes estábamos en una condición totalmente separada y alejada de Dios, ahora estamos en una condición de paz y totalmente aceptables ante Dios.
 
-### Colosenses 1:22a *" sin embargo,..."* 
+### Colosenses 1:22a *" sin embargo, ahora Dios los ha reconciliado en Cristo..."* 
 
-#### Vemos un contraste significativo, aún así tambien
+#### La iniciativa de reconciliarnos con él mismo es de Dios, y la reconciliación es en base a un hecho y una persona, Dios ha reconciliado a los creyentes en la persona de Cristo. 2 Corintios 5:18 
 
-### Colosenses 1:22b *"...ahora Dios los ha reconciliado en Cristo en Su cuerpo de carne,..."*
+#### Fuimos completamente reconciliados con Dios gracias a la muerte de su hijo. Romanos 5:10
 
-#### Dios ha reconciliado a los creyentes en Cristo, La reconciliación con dios sucedió únicamente En Cristo, en su cuerpo de carne, Específicamente mostrará en su cuerpo físico y lo que hizo
+#### El verbo reconciliado APOKATALASSO nos habla de una reconciliación total cambiando de una condición a otra, se encuentra en aoristo activo indicativo, dándonos a entender como un hecho real consumado.
 
-### Colosenses 1:22c *"...mediante Su muerte,..."*
+### Colosenses 1:22b *"...en Su cuerpo de carne, mediante Su muerte,..."*
 
-#### Mediante la muerte de su cuerpo de carne nos ha reconciliado Dios en Cristo.
+#### El hecho de la reconciliación es mediante su cuerpo de carne, esta mención hace énfasis en su cuerpo físico, contrastando las enseñanzas gnósticas que afirmaban que Cristo no vino en cuerpo físico, y no solo esto sino que la reconciliación fue en su cuerpo físico. Juan 1:14; 2 Juan 1:7
 
-### Colosenses 1:22d *"...a fin de presentarlos santos,..."*
+#### La muerte de física de Cristo es una base fundamental de nuestra reconciliación con Dios, en contraste directo con las creencias que Dios-hombre no podría morir, sin embargo la muerte de Cristo fue completamente verdadera. 1 Pedro 3:18
 
-#### Tiene un propósito lo que hizo, con el fin de presentarlos santos, en santidad o apartados para un uso exclusivo de Dios
+### Colosenses 1:22c *"...a fin de presentarlos santos, sin mancha e irreprensibles delante de Él."*
 
-### Colosenses 1:22d *"...sin mancha..."*
+#### El propósito de la muerte de Cristo fue reconciliarnos completamente con el Padre, así mismo ahora Cristo nos presenta santos y sin mancha, sin reprensión delante de Dios.
 
-#### Sin mancha tiene el sentido de no tener tacha, o alguna falla o suciedad.
+#### El verbo presentarlos PARISTEMI hace referencia a presentarlos formalmente, el termino es judicial y cultural ante una autoridad, se encuentra en aoristo infinitivo indicando el propósito del acto de la reconciliación, como un hecho definitivo.
 
-### Colosenses 1:22e *"...e irreprensibles delante de Él."*
+#### Estos adjetivos describen al creyente en su nueva realidad posicional, esto es debido a que Cristo ya nos presentó santos, irreprensibles y sin mancha delante de Dios.
 
-#### Ser irreprensibles delante de él no consiste en que nosotros tratemos de ser irreprensibles delante de él, sino en lo que el hizo para que seamos posicionalmente irreprensibles delante de el.
+##### Fuimos hechos *santos* delante de él, se entiende como sagrado, físicamente puro, sin culpa y ceremonialmente consagrados a Dios. Filipenses 4:21; 2 Tesalonicenses  1:10
+
+##### Fuimos hechos *sin mancha* delante de él, se entiende como intachable o sin culpa. Efesios 1:4; Judas 24
+
+##### Fuimos hechos *irreprensibles* delante de él, sin reprensión ó sin acusación alguna como resultado de una investigación pública, implica la inexistencia de cargos ó de acusación contra una persona.
+
+#### *Delante de él* nos indica que es como Cristo ya nos presentó, nos indica una realidad posicional y declarativa como resultado de la reconciliación que hubo en Cristo.
 
 ### Colosenses 1:23 *"Esto Él hará si en verdad permanecen en la fe bien cimentados y constantes, sin moverse de la esperanza del evangelio que han oído, que fue proclamado a toda la creación debajo del cielo, y del cual yo, Pablo, fui hecho ministro."*
 
-#### Este versículo es clave para entender la santificación posicional y Práctica debido a que no solo es teórico, mostrará la responsabilidad del creyente y su participación 
+#### Ahora el apóstol Pablo nos dará una ilustración práctica para el creyente relacionado con la verdad posicional que explicó en el anterior versículo, se podría decir: debido a que están permaneciendo en la fe y esto una realidad. 
 
 ### Colosenses 1:23a *"Esto Él hará si en verdad permanecen en la fe bien cimentados y constantes,..."* 
 
-#### Es interesante esta condicional que esto hará Dios, en los creyentes, Tenemos un si condicional, que quiere decir si hacen el hará esto.
+#### *Esto él hará*, es una inferencia anafórica (retoma algo dicho anteriormente) añadida por los traductores al texto para mejorar su comprensión, se refiere a la acción mencionada en el versículo anterior, de **presentar** a los creyentes santos, sin mancha e irreprensibles delante de Dios, se podría decir: ya que él los presentó (aoristo) ahora es una realidad que permanecen(presente) en la fe.
 
-#### La responsabilidad del creyente es de permanecer en la fe bien cimentados y constantes y Dios hará lo anterior del versiculo. El llevarlos hacia la madurez, y reflejar su santidad en la vida del creyente tanto para el mundo  como para Dios por que es lo que el hará en los creyentes si permanecen en la fe.
+#### Existe la condicional SI de primera clase, debido a que se encuentra con un verbo indicativo, expresando una realidad, este tipo de condicional no expresa duda (no es un tal vez), sino asume como verdad.
 
-#### El cimentados nos habla de estar solidificados en la enseñanza de la fe.
+#### *En la fe*, es usado como sustantivo para referirse a todo el cuerpo de la enseñanza el cual habían recibido. Judas 3; 1 Timoteo 1:19, 4:1; Gálatas 1:23
 
-#### El constantes nos habla de continuamente estar permaneciendo en la fe activa.
+#### El verbo permanecen EPIMENO (en la fe)expresa permanecer, perseverar ó persistir en algo, se encuentra en presente indicativo, expresando que es una situación actual observable, no una posibilidad futura incierta.
+
+#### La BTX4 lo traduce así: *"ya que en verdad permanecéis sólidamente cimentados y firmes en la fe, y sin moveros de la esperanza del Evangelio que oísteis, el cual fue proclamado en toda la creación que está debajo del cielo, del cual yo, Pablo, llegué a ser servidor"*. 
+
+#### Ya que los creyentes han sido hechos santos, sin mancha e irreprensibles, como consecuencia ahora están en tiempo presente permaneciendo firmes y bien cimentados en la fe de la esperanza del evangelio.
+
+#### El verbo cimentados DSEMELIOO (en la fe) expresa consolidados, fundados ó establecidos firmemente, se encuentra en tiempo perfecto pasivo participio, expresa una acción pasada con resultados continuos, siendo pasivo el sujeto(los creyentes) reciben la acción, entendiendo que han sido cimentados en la fe en el evangelio.
+
+#### La palabra constantes JEDRAIOS (en la fe) es un adjetivo que describe a alguien firme, que no se mueve, describe a alguien que no se mueve de la esperanza y continua estando firme en la misma.
 
 ### Colosenses 1:23b *"...sin moverse de la esperanza del evangelio que han oído,..."*
 
-#### Sin moverse de la esperanza del evangelio que han oído, muestra que había una posibilidad que se muevan de la esperanza que tenían
+#### El verbo moverse METAKINEO, expresa el moverse a sí mismo ó cambiar de lugar, se encuentra en tiempo presente media indicativo, indicando que en tiempo presente podrían moverse  buscando su propio beneficio.
 
-#### Cual es la esperanza del evangelio?
+#### La expresión sin moverse, expresa estar completamente firmes y cimentados en la esperanza del evangelio, a pesar de las circunstancias o dificultades. Colosenses 2:7; Efesios 3:17
 
-#### Que Cristo murió por nuestros pecados, fue sepultado y resucitó al tercer día, si creemos en esa  esperanza tendremos vida eterna.
+#### ¿Cuál era la esperanza del evangelio que habían oído?
+
+#### El apóstol Pablo claramente enfatiza en sus cartas el evangelio que había sido encomendado, el mensaje que había recibido era directamente encomendado por Jesucristo mismo. Gálatas 1:11-12
+
+#### El mensaje que enseñaba era que Cristo murió por nuestros pecados, fue sepultado y resucitó al tercer día conforme a las escrituras.1 Corintios 15:1-4
+
+#### Toda persona que cree en el mensaje del evangelio de salvación tiene vida eterna. Efesios 1:13
 
 ### Colosenses 1:23c *"...que fue proclamado a toda la creación debajo del cielo,..."*
 
-#### Cual es la esperanza que han oido, pues la esperanza del evangelio, Este evangelio ha sido proclamado por toda la creación, ha sido anunciado por todo el mundo esta buena noticia.
+#### Este mensaje del evangelio, había sido proclamado a toda la creación, y se había dispersado por todo el mundo conocido, era un mensaje preciso y objetivo el que había llegado hasta los Colosenses.
+
+#### Este mensaje de salvación es para toda criatura. Marcos 16:15; Romanos 1:16
 
 ### Colosenses 1:23d *"...y del cual yo, Pablo, fui hecho ministro."*
+
+#### El apóstol Pablo fue hecho ministro, de este precioso evangelio por gracia. Efesios 3:1-9; 1 Corintios 3:5; 2 Corintios 3:6, 11:23; Colosenses 1:25
+
+#### La palabra ministro DIAKONOS es un sustantivo que significa servidor, sirviente, mesero, una posición humilde de servicio.
 
 ---
 
@@ -760,9 +1098,7 @@ Title: Epístola del apóstol Pablo a los Colosenses
 
 #### La manera en que tendrían que andar los creyentes colosenses es por medio de la fe en el evangelio para santificación, no existe otra manera de andar conforme a la voluntad de Dios sino conforme al evangelio de Cristo.
 
-### Colosenses 2:7 *"firmemente arraigados y edificados en Él y confirmados en su fe, tal como fueron instruidos, rebosando de gratitud."*
-
-#### La firmeza y la edificación tienen que ser en una persona, Cristo,  así fueron instruidos en el evangelio, pues les anima a vivir la vida Cristiana de la misma manera en que fueron instruidos.
+### Colosenses 2:7 La firmeza y la edificación tienen que ser en una persona, Cristo,  así fueron instruidos en el evangelio, pues les anima a vivir la vida Cristiana de la misma manera en que fueron instruidos.
 
 ###  Colosenses 2:7a *"firmemente arraigados y edificados en Él..."* 
 
@@ -788,9 +1124,7 @@ Title: Epístola del apóstol Pablo a los Colosenses
 
 ## Colosenses 2:8-15 La cautividad de la filosofía y la completitud del creyente en el evangelio.
 
-### Colosenses 2:8 *"Miren que nadie los haga cautivos por medio de su filosofía y vanas sutilezas, según la tradición de los hombres, conforme a los principios elementales del mundo y no según Cristo. "*
-
-#### Empieza anunciándoles que habrá muchos que los introducirán filosofías y otras cosas según los hombres con el fin de sincretizarlos a la doctrina de Cristo. sin embargo eso no es según Cristo, es según el mundo pero no según Cristo.
+### Colosenses 2:8 Empieza anunciándoles que habrá muchos que los introducirán filosofías y otras cosas según los hombres con el fin de sincretizarlos a la doctrina de Cristo. sin embargo eso no es según Cristo, es según el mundo pero no según Cristo.
 
 ### Colosenses 2:8a *"Miren que nadie los haga cautivos por medio de su filosofía y vanas sutilezas,..."* 
 
@@ -2261,6 +2595,8 @@ Title: Epístola del apóstol Pablo a los Colosenses
 #### Vemos algo importante que los creyentes colosenses podrían estar continuamente acordándose, de sus cadenas, de la prisión, del martirio por causa de la predicación del evangelio, que para él no eran motivo de vergüenza, sino motivo de fortaleza y ánimo para todos los creyentes, ver los padecimientos por causa de Cristo. que quizá muchos creyentes tenían vergüenza acerca del arresto de Pablo pensando que habría hecho alguna cosa como delincuente.
 
 ### Colosenses 4:18e *"...La gracia sea con ustedes."*
+
+#### el sombrerazo ó la uñeta
 
 #### Las últimas palabras de despedida hace un énfasis en la gracia que el proclamaba, por el cual había sido salvo, por el cual era santificado, por el cual tenía la esperanza de la vida eterna, la gracia la cual había recibido por medio de Cristo, la gracia por el cual estaba preso y sufría como malhechos, la gracia que nos acercó al Padre por medio de Creer en un mensaje de salvación, el Evangelio.
 
